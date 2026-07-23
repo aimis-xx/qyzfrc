@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时25分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>机构资金集中买入海螺水泥7300万，水泥龙头获机构抱团</h3><br><p>保险资管扎堆调研养老产业标的，养老社区入住率数据披露。<br><br> | 来源：<code>https;//ljzbapp.com.cn
+</code></p><br><br><h3>全国冰雪运动参与人数突破3亿，带动冰雪产业规模超8000亿</h3><br><p>全国太湖蓝藻水华预警系统升级，提前7天精准预判。<br><br> | 来源：<code>https;//ljzbapp.org.cn
+</code></p><br><br><h3>海尔智家高端产品占比提升，单季业绩预告超预期</h3><br><p>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励。<br><br> | 来源：<code>https;//ljzbapp.cn
+</code></p><br><br><h3>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%</h3><br><p>东方电缆异动拉升5.2%，海缆订单持续落地。<br><br> | 来源：<code>https;//ljzbappgf.com.cn
+</code></p><br><br><h3>东方财富放量大涨，券商异动下的人气激活信号</h3><br><p>机构资金净买入宁德时代12亿，核心资产获大资金加仓。<br><br> | 来源：<code>https;//ljzbappgf.org.cn
+</code></p><br><br><h3>全国居民平均每日运动时长超1小时，运动习惯逐步养成</h3><br><p>智能网联汽车准入试点落地，车路协同标的拉升。<br><br> | 来源：<code>https;//ljzbappgf.cn
+</code></p><br><br><h3>中远海控行业周期复盘：集运行业的供需格局长期演变</h3><br><p>汉缆股份涨超3.9%，电网投资带动订单增长。<br><br> | 来源：<code>https;//ljzbgfbxz.com.cn
+</code></p><br><br><h3>巴黎奥运会中国代表团斩获42金，位列金牌榜第二位创造境外参赛最佳</h3><br><p>核电新项目审批重启，核电产业链标的全线拉升。<br><br> | 来源：<code>https;//ljzbgfbxz.org.cn
+</code></p><br><br><h3>控股股东耗资3亿增持汽车电子标的，回购股份用于股权激励</h3><br><p>北向资金连续流入紫金矿业，黄金龙头外资持仓持续提升。<br><br> | 来源：<code>https;//ljzbgfbxz.cn
+</code></p><br><br><h3>长安汽车自主转型路径：从传统燃油车到新能源的蜕变</h3><br><p>伊利股份乳制品量价齐升，前三季度业绩预增超20%。<br><br> | 来源：<code>https;//ljzbgw.com.cn
+</code></p><br><br><h3>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善</h3><br><p>尿素价格单月上涨9%，化肥板块迎来产品涨价催化。<br><br> | 来源：<code>https;//ljzbgw.org.cn
+</code></p><br><br><h3>亚太经合组织峰会召开，达成数字经济合作框架</h3><br><p>沪深交易所降费，券商经纪业务标的集体上涨。<br><br> | 来源：<code>https;//ljzbgw.cn
+</code></p><br><br><h3>中国女子排球队奥运夺冠，时隔12年再度站上最高领奖台</h3><br><p>福建高速异动拉升2.2%，海西地区车流量回暖。<br><br> | 来源：<code>https;//ljzbnbamfgk.com.cn
+</code></p><br><br><h3>全国会展经济快速复苏，上半年展览场次同比增长45%</h3><br><p>全国钢铁行业超低排放改造完成，减排效果达国际先进水平。<br><br> | 来源：<code>https;//ljzbnbamfgk.org.cn
+</code></p><br><br><h3>全国县域商业体系建设完成，农村消费市场潜力持续释放</h3><br><p>全国夜间文旅消费集聚区破200个，点亮城市夜经济。<br><br> | 来源：<code>https;//ljzbnbamfgk.cn
+</code></p><br><br><h3>新疆暑期游订单破5000万，独库公路日均通车量超2万辆</h3><br><p>固德威户用储能爆发，单季业绩预告超预期。<br><br> | 来源：<code>https;//ljzbtyzb.com.cn
+</code></p><br><br><h3>沪股通席位单日买入华友钴业8100万，新能源金属标的增持</h3><br><p>中国保龄球队亚运会夺得金牌，小众项目实现历史性突破。<br><br> | 来源：<code>https;//ljzbtyzb.org.cn
+</code></p><br><br><h3>降准释放长期资金支持基建，建筑板块迎来估值修复</h3><br><p>铁矿石价格反弹10%，铁矿上市公司盈利边际改善。<br><br> | 来源：<code>https;//ljzbtyzb.cn
+</code></p><br><br><h3>储能行业需求爆发：产业链上下游的景气度传导逻辑</h3><br><p>养老服务体系建设政策，养老产业标的全线走强。<br><br> | 来源：<code>https;//ljzbwy.com.cn
+</code></p><br><br><h3>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局</h3><br><p>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%。<br><br> | 来源：<code>https;//ljzbwy.org.cn
