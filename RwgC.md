@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分07秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国全民阅读指数达72分，人均年阅读纸质书超8本</h3><br><p>恩捷股份异动拉升5.4%，锂电池隔膜份额持续提升。<br><br> | 来源：<code>https://aiyeshipinwangzhan.net.cn
+</code></p><br><br><h3>万华化学研发投入优势：化工龙头持续技术迭代的底层逻辑</h3><br><p>降准降息组合利好地产链，建材板块迎来估值修复。<br><br> | 来源：<code>https://aiyeshipinxiazai.net.cn
+</code></p><br><br><h3>小鹏汽车异动拉升9.2%，新车型交付量超预期</h3><br><p>存量房贷利率下调释放居民现金流，可选消费板块受益。<br><br> | 来源：<code>https://aiyewangyeban.net.cn
+</code></p><br><br><h3>全国游泳冠军赛落幕，多名小将打破全国纪录</h3><br><p>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%。<br><br> | 来源：<code>https://aiyewangzhan.net.cn
+</code></p><br><br><h3>腾讯云大模型生态开放，接入超十万第三方应用</h3><br><p>全国氢能产业示范城市群落地，燃料电池汽车推广超12万辆。<br><br> | 来源：<code>https://aiyexiazai.net.cn
+</code></p><br><br><h3>北向资金单日买入中国神华1.5亿，高股息龙头获外资持续流入</h3><br><p>零跑汽车异动拉升7.9%，性价比车型销量爆发。<br><br> | 来源：<code>https://akeelahandthebee.com.cn
+</code></p><br><br><h3>宝钢股份产品结构升级：高端钢铁的盈利稳定性分析</h3><br><p>液态奶价格上涨3%，乳制品板块迎来涨价催化。<br><br> | 来源：<code>https://anquye.com.cn
+</code></p><br><br><h3>养老服务体系建设政策，养老产业标的全线走强</h3><br><p>全国文化和旅游消费试点城市扩围，打造百个消费标杆城市。<br><br> | 来源：<code>https://anzhailala.com.cn
+</code></p><br><br><h3>法国二季度GDP增长0.4%，经济逐步走出停滞</h3><br><p>龙江交通放量上涨1.8%，东北区域车流量边际改善。<br><br> | 来源：<code>https://anzhuohuangyou.com.cn
+</code></p><br><br><h3>游资知名席位联手买入赛力斯1.4亿，整车标的获资金追捧</h3><br><p>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产。<br><br> | 来源：<code>https://aocai-2448442-net.com
+</code></p><br><br><h3>金龙汽车海外客车出口翻倍，前三季度业绩预增超60%</h3><br><p>亚运会赛事热度超预期，体育产业板块全线上涨。<br><br> | 来源：<code>https://app-188-net.com.cn
+</code></p><br><br><h3>广汽集团涨超4.8%，埃安品牌月销破5万</h3><br><p>知名私募组团调研MR产业链标的，新品备货数据曝光。<br><br> | 来源：<code>https://app-biwei-vip.com.cn
+</code></p><br><br><h3>多地调整最低工资标准，最高涨幅达11.5%惠及千万劳动者</h3><br><p>虚拟电厂建设导则出台，虚拟电厂标的全线拉升。<br><br> | 来源：<code>https://app-by-sports.com.cn
+</code></p><br><br><h3>北京国际铁人三项赛举办，吸引全球千名选手参赛</h3><br><p>量子信息产业规划发布，量子通信标的全线拉升。<br><br> | 来源：<code>https://app-ml-tiyu.com.cn
+</code></p><br><br><h3>民宿行业合规化推进，全国星级民宿数量突破2万家</h3><br><p>企业中长期贷款增速回升，宽信用效果逐步显现。<br><br> | 来源：<code>https://aqdav.org.cn
+</code></p><br><br><h3>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升</h3><br><p>中国平安综合金融版图：保险+银行+投资的协同优势。<br><br> | 来源：<code>https://ba-geheiliao.com.cn
+</code></p><br><br><h3>全国夜间经济规模上半年突破18万亿元，成为消费新增长点</h3><br><p>全国研究生考试报名人数首次回落，就业导向成为报考主流。<br><br> | 来源：<code>https://bachabacha.com.cn
+</code></p><br><br><h3>实控人邀约收购中药创新药企业，溢价35%发起全面要约</h3><br><p>生活用纸价格上调4%，生活用纸龙头盈利提升。<br><br> | 来源：<code>https://bafuli.com.cn
+</code></p><br><br><h3>上海建工城市更新布局：上海本地基建龙头的区域优势</h3><br><p>高管团队集体增持宠物食品龙头，合计增持超6500万。<br><br> | 来源：<code>https://bageheiliao.com.cn
+</code></p><br><br><h3>东方电气风电设备技术：国内能源装备龙头的多赛道布局</h3><br><p>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发。<br><br> | 来源：<code>https://bageheiliao.org.cn
