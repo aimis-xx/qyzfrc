@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分09秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国体育消费规模上半年突破8000亿元，运动装备销量暴涨</h3><br><p>外资持续买入科大讯飞，AI龙头获外资持仓占比突破3%。<br><br> | 来源：<code>https://fulidaohangzaixian.cn
+</code></p><br><br><h3>北向资金连续5日加仓贵州茅台，持仓占比创历史新高</h3><br><p>腾讯云大模型生态开放，接入超十万第三方应用。<br><br> | 来源：<code>https://fulidaohangzaixianguankan.cn
+</code></p><br><br><h3>国际金价创历史新高，黄金珠宝标的集体上涨</h3><br><p>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓。<br><br> | 来源：<code>https://fulipuzi.org.cn
+</code></p><br><br><h3>中国中铁一带一路订单落地，单季业绩预告超预期</h3><br><p>三安光电化合物半导体布局：LED+碳化硅的长期空间。<br><br> | 来源：<code>https://fulishedaohang.cn
+</code></p><br><br><h3>谷爱凌复出参加世锦赛，斩获自由式滑雪U型场地金牌</h3><br><p>中国攀岩队世锦赛夺得2金，速度攀岩世界纪录多次被打破。<br><br> | 来源：<code>https://fulishipindao.cn
+</code></p><br><br><h3>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局</h3><br><p>公募基金集中调研智慧交通标的，车路协同项目落地节奏。<br><br> | 来源：<code>https://fulishipindaohang.cn
+</code></p><br><br><h3>药明康德单日涨超5%，CXO板块迎来情绪拐点</h3><br><p>大北农种业布局：转基因商业化下的种业龙头成长逻辑。<br><br> | 来源：<code>https://fulishipinwangzhan.cn
+</code></p><br><br><h3>头部机构组团到访创新药龙头，核心管线临床三期数据披露</h3><br><p>全国扬子鳄野生种群数量突破2万只，野外放归成效显著。<br><br> | 来源：<code>https://fulishipinwangzhi.cn
+</code></p><br><br><h3>全国居民恩格尔系数降至28.5%，消费结构持续优化升级</h3><br><p>长安汽车深蓝品牌定位：主流新能源市场的差异化竞争。<br><br> | 来源：<code>https://fulishipinzaixian.cn
+</code></p><br><br><h3>万华化学MDI价格反弹，单季业绩预告超预期</h3><br><p>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级。<br><br> | 来源：<code>https://fuliwangzhan.cn
+</code></p><br><br><h3>企业融资成本创历史新低，制造业投资增速回升</h3><br><p>控股股东耗资5亿大手笔增持AI算力龙头，彰显长期发展信心。<br><br> | 来源：<code>https://fuliwangzhan.org.cn
+</code></p><br><br><h3>主题乐园暑期游客量突破1亿人次，IP衍生消费持续增长</h3><br><p>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长。<br><br> | 来源：<code>https://fuliwangzhidaohang.cn
+</code></p><br><br><h3>中国游泳队世锦赛斩获5金，打破2项世界纪录领跑泳坛</h3><br><p>央行逆回购操作利率下调，短期资金面维持宽松。<br><br> | 来源：<code>https://fuliwuye.com.cn
+</code></p><br><br><h3>铅价上涨7%，铅酸电池板块盈利边际改善</h3><br><p>温氏股份禽畜盈利双增，前三季度业绩预增超60%。<br><br> | 来源：<code>https://gaishidongman.com.cn
+</code></p><br><br><h3>1年期LPR下调5BP，实体经济融资成本稳步下行</h3><br><p>露营经济上半年市场规模突破300亿元，精致露营成为新趋势。<br><br> | 来源：<code>https://galagame.com.cn
+</code></p><br><br><h3>海康威视海外市场拓展：AI安防产品的全球份额提升</h3><br><p>存量房贷利率下调释放万亿现金流，可选消费板块弹性最大。<br><br> | 来源：<code>https://galaxiaozhan.com.cn
+</code></p><br><br><h3>光伏组件出口数据亮眼：产业链盈利修复路径</h3><br><p>三安光电涨超4.2%，LED芯片需求边际改善。<br><br> | 来源：<code>https://galgamewangzhan.com.cn
+</code></p><br><br><h3>定向降息支持制造业高端化，工业母机板块获定向利好</h3><br><p>政策性降息支持保障性住房建设，保障房产业链受益。<br><br> | 来源：<code>https://galgamexiazai.com.cn
+</code></p><br><br><h3>企业融资成本创历史新低，制造业投资增速回升</h3><br><p>预制菜产业标准出台，预制菜板块走强。<br><br> | 来源：<code>https://galgameziyuan.com.cn
+</code></p><br><br><h3>雄安新区建设新进展，雄安基建标的集体异动</h3><br><p>中兴通讯放量上涨4.8%，算力服务器业务高增。<br><br> | 来源：<code>https://gao-liujia.com.cn
