@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内大模型人才缺口破百万，AI相关专业毕业生供不应求</h3><br><p>钠离子电池材料价格上涨8%，钠电池产业链盈利优化。<br><br> | 来源：<code>https://cn-btiyu-web.com.cn
+</code></p><br><br><h3>低空旅游市场爆发，上半年直升机观光订单同比增长200%</h3><br><p>隆基绿能全球化布局：光伏龙头规避贸易壁垒的路径解析。<br><br> | 来源：<code>https://cn-chengrenmanhua.com.cn
+</code></p><br><br><h3>武汉长江灯光秀暑期上新，吸引超千万游客观赏打卡</h3><br><p>百亿私募组团调研光模块企业，1.6T产品送样海外客户。<br><br> | 来源：<code>https://cn-haijiaoshequ.com.cn
+</code></p><br><br><h3>全国抽水蓄能电站装机容量突破8000万千瓦，储能能力提升</h3><br><p>大模型在农业病虫害防治领域应用，减少农药使用20%。<br><br> | 来源：<code>https://cn-haohaidong.com.cn
+</code></p><br><br><h3>北方华创涨超6.3%，半导体设备国产替代进度提速</h3><br><p>存量房贷利率下调释放万亿现金流，可选消费板块弹性最大。<br><br> | 来源：<code>https://cn-jb-tiyu-web.com.cn
+</code></p><br><br><h3>AI翻译工具支持百种语言实时互译，准确率超专业译员</h3><br><p>化肥价格集体上涨，农资板块迎来产品涨价催化。<br><br> | 来源：<code>https://cn-jiabosports.com.cn
+</code></p><br><br><h3>机构资金联手买入晶澳科技7600万，组件龙头获机构抱团</h3><br><p>江特电机触底反弹5.9%，锂盐价格企稳回升。<br><br> | 来源：<code>https://cn-kaiyun-esports.com.cn
+</code></p><br><br><h3>中微公司刻蚀设备技术：半导体设备细分龙头的核心壁垒</h3><br><p>儿童用药扶持政策，儿科医药标的全线拉升。<br><br> | 来源：<code>https://cn-ls-tiyu.com.cn
+</code></p><br><br><h3>北向资金举牌冷链物流标的，生鲜配送网络扩张获外资流入</h3><br><p>降准释放长期资金支持新能源，绿电板块迎来定向利好。<br><br> | 来源：<code>https://cn-ob-tiyu.com.cn
+</code></p><br><br><h3>全国社区运动会覆盖千城，群众家门口参与体育赛事</h3><br><p>深高速放量上涨2.5%，深圳区域路网资产优质。<br><br> | 来源：<code>https://cn-pb-tiyu.com.cn
+</code></p><br><br><h3>券商板块异动激活人气：行情回暖下的贝塔机会解析</h3><br><p>高管团队集体增持智慧交通标的，合计增持金额超1.2亿。<br><br> | 来源：<code>https://cn-pipi-yingyuan.com.cn
+</code></p><br><br><h3>汽车数据安全管理新规，汽车软件板块集体上涨</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>https://cn-pipiyingyuan.com.cn
+</code></p><br><br><h3>新增开户数环比大增，互联网券商板块全线走强</h3><br><p>降准降息组合利好地产链，建材板块迎来估值修复。<br><br> | 来源：<code>https://cn-qingyule.com.cn
+</code></p><br><br><h3>特斯拉4680电池量产提速，锂电结构件标的集体上涨</h3><br><p>中国女子跆拳道队世锦赛斩获4金，奥运备战状态出色。<br><br> | 来源：<code>https://cn-qiusu-vip.com.cn
+</code></p><br><br><h3>国产科幻小说海外获奖，中国想象力走向全球读者</h3><br><p>全国垃圾分类覆盖率达92%，资源化利用率提升至38%。<br><br> | 来源：<code>https://cn-qy-tiyu.com.cn
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>全国旅游志愿服务队伍超百万，提升游客出行体验。<br><br> | 来源：<code>https://cn-wd-tiyu.com.cn
+</code></p><br><br><h3>全球人口突破81亿，人口结构变化重塑经济格局</h3><br><p>抽水蓄能电站规划，抽水蓄能板块走强。<br><br> | 来源：<code>https://cn-worldcup-huodong.com
+</code></p><br><br><h3>钯价连续上涨9%，汽车尾气催化板块盈利改善</h3><br><p>铅价上涨7%，铅酸电池板块盈利边际改善。<br><br> | 来源：<code>https://cn-worldcup-peilv.com
+</code></p><br><br><h3>新希望全产业链布局：从饲料到养殖的协同优势解析</h3><br><p>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%。<br><br> | 来源：<code>https://cn-worldcup-score-rate.com
+</code></p><br><br><h3>全国生态环境监测网络全覆盖，实时数据向公众开放</h3><br><p>长江流域水质优良断面比例达99%，生态环境持续改善。<br><br> | 来源：<code>https://cn-worldcup-xiazhu.com
