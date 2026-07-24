@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分05秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>养老金现身特高压龙头调研，海外工程落地节奏引热议</h3><br><p>养老金新进AI芯片设计标的，布局大模型推理芯片赛道。<br><br> | 来源：<code>https://zaixianri.com.cn
+</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>派能科技户用储能电池技术：全球户用储能龙头的壁垒。<br><br> | 来源：<code>https://zaixianriben.com.cn
+</code></p><br><br><h3>游戏出海企业登陆创业板，海外流水占比超70%引资金热捧</h3><br><p>多地发放亿元文旅消费券，直接带动消费超30亿。<br><br> | 来源：<code>https://zenmezuoaishipin.com.cn
+</code></p><br><br><h3>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现</h3><br><p>国产科幻电影票房突破50亿元，《流浪地球3》刷新纪录。<br><br> | 来源：<code>https://zh-17c.cn
+</code></p><br><br><h3>暑期档电影票房突破200亿元，国产主旋律影片领跑市场</h3><br><p>全国马拉松赛事上半年举办超500场，参赛人次突破600万。<br><br> | 来源：<code>https://zh-91dongman.com.cn
+</code></p><br><br><h3>阳光电源技术迭代能力：逆变器龙头的全球竞争力</h3><br><p>实控人邀约收购家电出海龙头，溢价30%发起全面要约。<br><br> | 来源：<code>https://zh-baoyu.com.cn
+</code></p><br><br><h3>稀土永磁政策红利：行业供需格局优化下的投资机会</h3><br><p>全国老字号品牌超万家，国潮复兴带动传统产业转型升级。<br><br> | 来源：<code>https://zh-bytv.com.cn
+</code></p><br><br><h3>钙钛矿光伏企业开启新股申购，量产进度领先行业获资金热捧</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>https://zh-caoliushequ.cn
+</code></p><br><br><h3>铁矿石价格反弹10%，铁矿上市公司盈利边际改善</h3><br><p>北京君正车载存储优势：汽车电子赛道的高景气受益标的。<br><br> | 来源：<code>https://zh-chengren-yingyuan.com.cn
+</code></p><br><br><h3>全国县域旅游百强县榜单发布，江浙地区占比超六成</h3><br><p>露营经济持续升温，全国露营地数量突破4万个。<br><br> | 来源：<code>https://zh-chengrenmanhua.com.cn
+</code></p><br><br><h3>运达股份放量上涨5.3%，风电整机盈利修复</h3><br><p>登海种业放量上涨4.0%，玉米种子需求持续向好。<br><br> | 来源：<code>https://zh-dapigu.com.cn
+</code></p><br><br><h3>全国臭氧浓度同比下降5%，夏季蓝天数量明显增加</h3><br><p>中国女子赛艇队世锦赛斩获2金，奥运备战状态火热。<br><br> | 来源：<code>https://zh-diyici.com.cn
+</code></p><br><br><h3>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善</h3><br><p>全国无偿献血人次突破2000万，临床用血全部来自自愿捐献。<br><br> | 来源：<code>https://zh-fancha.com.cn
+</code></p><br><br><h3>头部机构组团到访医美耗材龙头，新品获批进度超预期</h3><br><p>人民币汇率升值至6.8关口，航空板块汇兑收益大幅增加。<br><br> | 来源：<code>https://zh-fanhao.com.cn
+</code></p><br><br><h3>超230家机构到访工业软件龙头，研发设计软件付费转化率</h3><br><p>全国国家森林公园数量增至1000个，生态旅游蓬勃发展。<br><br> | 来源：<code>https://zh-gaypian.com.cn
+</code></p><br><br><h3>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发</h3><br><p>全国国家公园数量增至15个，保护面积超23万平方公里。<br><br> | 来源：<code>https://zh-guochan-zaixian-guankan.com.cn
+</code></p><br><br><h3>理想汽车涨超8.5%，L系列车型月销破4万</h3><br><p>天齐锂业锂价反弹，单季业绩预告环比大增。<br><br> | 来源：<code>https://zh-h-manhua.com.cn
+</code></p><br><br><h3>中国通号涨超3.4%，高铁信号系统份额领先</h3><br><p>10年期国债收益率下行至2.5%以下，权益资产吸引力提升。<br><br> | 来源：<code>https://zh-haijiaoshequ.com.cn
+</code></p><br><br><h3>机构资金净买入宁德时代12亿，核心资产获大资金加仓</h3><br><p>产业资本连续增持智能电网标的，特高压产业链获资本布局。<br><br> | 来源：<code>https://zh-jianqing.com.cn
+</code></p><br><br><h3>天齐锂业锂矿资源储备：全球锂矿龙头的资源禀赋优势</h3><br><p>全球冷链物流市场规模突破4000亿美元，生鲜贸易增长。<br><br> | 来源：<code>https://zh-jiese.com.cn
