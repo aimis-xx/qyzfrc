@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>海康威视涨超4.7%，AI安防业务收入增速回升</h3><br><p>QFII集中调研医药流通龙头，院外市场拓展节奏披露。<br><br> | 来源：<code>https://zh-yinluan.com.cn
+</code></p><br><br><h3>浙江建投区域基建订单饱满，单季业绩预告超预期</h3><br><p>北向资金连续5日净流入，降息后外资持续加仓核心资产。<br><br> | 来源：<code>https://zh-yiqicao.com.cn
+</code></p><br><br><h3>全国人均体育场地面积达2.8平方米，健身设施供给持续增加</h3><br><p>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心。<br><br> | 来源：<code>https://zh-youyou.com.cn
+</code></p><br><br><h3>全国攀岩联赛覆盖20城，攀岩运动成年轻人新宠</h3><br><p>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发。<br><br> | 来源：<code>https://zh-yuputuan.com.cn
+</code></p><br><br><h3>养老金现身特高压龙头调研，海外工程落地节奏引热议</h3><br><p>工业金属集体上涨，有色板块迎来全面行情催化。<br><br> | 来源：<code>https://zh-zuoai.com.cn
+</code></p><br><br><h3>央行下调再贷款利率，精准支持科技创新领域</h3><br><p>一带一路十周年峰会召开，中字头基建标的拉升。<br><br> | 来源：<code>https://zhang-ri-guangyin.com.cn
+</code></p><br><br><h3>数字中国建设新规划，数字经济标的集体异动</h3><br><p>中国跆拳道队世锦赛斩获5金，金牌数位列奖牌榜第一。<br><br> | 来源：<code>https://zhangbaizhiyanzhaomen.net.cn
+</code></p><br><br><h3>保险资管扎堆调研CRO龙头，创新药管线临床数据披露</h3><br><p>中国女子排球队奥运夺冠，时隔12年再度站上最高领奖台。<br><br> | 来源：<code>https://zhaoyangshui.com.cn
+</code></p><br><br><h3>牧原股份疫病防控能力：生猪养殖龙头的核心经营壁垒</h3><br><p>东北振兴新举措出台，推动老工业基地产业转型升级。<br><br> | 来源：<code>https://zhengtaimanhua.com.cn
+</code></p><br><br><h3>陕西历史博物馆暑期预约一票难求，单日接待量突破4万人次</h3><br><p>上半年全国显示面板出口同比增长21%，电子产业优势巩固。<br><br> | 来源：<code>https://zhengtu-guoji-app.com
+</code></p><br><br><h3>周期品沿趋势上行：黄金、有色、钢铁的业绩弹性对比</h3><br><p>地方国资战略入股卫星互联网标的，助力星座组网建设。<br><br> | 来源：<code>https://zhengtu-guoji-entry.com
+</code></p><br><br><h3>沙漠光伏基地建设规划，大基地光伏标的全线异动</h3><br><p>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放。<br><br> | 来源：<code>https://zhengtu-guoji.com.cn
+</code></p><br><br><h3>国内高铁游人次上半年破10亿，“快旅慢游”成主流模式</h3><br><p>华北高速涨超1.9%，京津冀路网业务稳健。<br><br> | 来源：<code>https://zhenren-sports-hub.com.cn
+</code></p><br><br><h3>贵州暑期游订单破4000万，“村超”带动全县文旅收入翻倍</h3><br><p>中国桥牌队世锦赛夺得冠军，高端智力运动跻身世界前列。<br><br> | 来源：<code>https://zhibo-zuoai.com.cn
+</code></p><br><br><h3>山西汾酒全国化加速，前三季度业绩预增超35%</h3><br><p>洽洽食品坚果品类拓展：传统炒货企业的成长第二曲线。<br><br> | 来源：<code>https://zhiguangzaixian.org.cn
+</code></p><br><br><h3>全国体育场馆免费或低收费开放，年接待群众超10亿人次</h3><br><p>慢就是快：在高确定性标的上持仓，远比追热点赚得稳。<br><br> | 来源：<code>https://zhiguangzaixianguankan.org.cn
+</code></p><br><br><h3>先导智能技术积累：锂电设备全球龙头的核心竞争力</h3><br><p>中国男子橄榄球队亚运会闯入八强，项目普及度持续提升。<br><br> | 来源：<code>https://zhongwenzimu-rihan.com.cn
+</code></p><br><br><h3>农药价格开启新一轮涨价，农化板块盈利弹性释放</h3><br><p>超210家机构到访AI安防龙头，海外政府订单同比大增。<br><br> | 来源：<code>https://zhongwenzimuri-han.com.cn
+</code></p><br><br><h3>国家集采冠脉支架降价后，全国手术量同比增长30%惠及患者</h3><br><p>全国"无废城市"试点扩围至100个，固废资源化利用提速。<br><br> | 来源：<code>https://zhongwenzimurihan.com.cn
+</code></p><br><br><h3>全国青少年体育赛事覆盖所有项目，参赛人次突破千万</h3><br><p>宁德时代异动拉升6.2%，海外储能项目持续落地。<br><br> | 来源：<code>https://zhongying-guoji-web.com
