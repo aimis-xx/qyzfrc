@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>长白山暑期避暑游热度高，日均接待游客超2万人次</h3><br><p>梅花生物氨基酸价格反弹，前三季度业绩预增超40%。<br><br> | 来源：<code>https://mogutvchengpinren.com.cn
+</code></p><br><br><h3>首套房贷款利率突破2.9%，刚需购房成本创历史新低</h3><br><p>实控人溢价25%增持电力现货交易标的，传递价值低估信号。<br><br> | 来源：<code>https://mogutvrukou.com.cn
+</code></p><br><br><h3>超160家机构到访锂电回收龙头，回收处理产能利用率超90%</h3><br><p>全国博物馆总数突破6500家，年接待观众超12亿人次。<br><br> | 来源：<code>https://mogutvwangyeban.com.cn
+</code></p><br><br><h3>中国中冶放量上涨2.9%，新能源冶金订单爆发</h3><br><p>需求侧响应政策落地，电力营销板块集体上涨。<br><br> | 来源：<code>https://moguwang.com.cn
+</code></p><br><br><h3>华为智选新车型发布，相关合作车企单日大涨</h3><br><p>机构资金联手买入北京君正9500万，车载存储龙头获抱团。<br><br> | 来源：<code>https://mrds-mrds.com.cn
+</code></p><br><br><h3>复合肥价格上调7%，化肥全产业链盈利优化</h3><br><p>西湖暑期游客量突破600万人次，免费景区持续释放民生红利。<br><br> | 来源：<code>https://mu-jiaoshi.com.cn
+</code></p><br><br><h3>全球卫星互联网用户突破1亿，太空经济进入爆发期</h3><br><p>国务院出台6方面24条政策，进一步扩大对外开放。<br><br> | 来源：<code>https://mugua-shipin.com.cn
+</code></p><br><br><h3>中国马术队首次获得亚运会金牌，马术运动实现零的突破</h3><br><p>通威股份硅料产能优势：低成本产能释放下的行业格局。<br><br> | 来源：<code>https://mugua-yingyuan.com.cn
+</code></p><br><br><h3>西藏暑期游客量突破200万人次，高原旅游热度创新高</h3><br><p>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%。<br><br> | 来源：<code>https://muguamanhua.com.cn
+</code></p><br><br><h3>存款利率下调推动理财收益率下行，权益基金发行回暖</h3><br><p>全国足球场数量超20万个，人均足球场地面积达1.8平方米。<br><br> | 来源：<code>https://muguawanguanwang.com.cn
+</code></p><br><br><h3>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光</h3><br><p>小鹏汽车异动拉升9.2%，新车型交付量超预期。<br><br> | 来源：<code>https://muguawanwangye.com.cn
+</code></p><br><br><h3>北向资金连续5日净流入，降息后外资持续加仓核心资产</h3><br><p>隆平高科转基因优势：种业商业化政策放开下的龙头受益。<br><br> | 来源：<code>https://muguazhibo.com.cn
+</code></p><br><br><h3>中国平安权重护盘，指数关键点位的支撑作用凸显</h3><br><p>全球新能源汽车电池市场规模突破3000亿美元，中国企业主导。<br><br> | 来源：<code>https://muzi-zhuang.com.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>外资机构席位净买入国电南瑞1.6亿，电网设备龙头获外资加仓。<br><br> | 来源：<code>https://nai-paodongman.com.cn
+</code></p><br><br><h3>天顺风能异动拉升4.6%，风电塔架订单高增</h3><br><p>超210家机构到访AI安防龙头，海外政府订单同比大增。<br><br> | 来源：<code>https://naimadongman.com.cn
+</code></p><br><br><h3>上海建工城市更新布局：上海本地基建龙头的区域优势</h3><br><p>外资机构集中调研种业龙头，转基因商业化落地节奏披露。<br><br> | 来源：<code>https://naipaodongman.com.cn
+</code></p><br><br><h3>机构资金联手买入洽洽食品5800万，食品龙头获机构抱团</h3><br><p>建筑节能改造政策，绿色建筑板块集体上涨。<br><br> | 来源：<code>https://naipiandongman.com.cn
+</code></p><br><br><h3>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界</h3><br><p>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张。<br><br> | 来源：<code>https://naiqiudongman.com.cn
+</code></p><br><br><h3>5年期LPR超预期下调，房企融资环境边际改善</h3><br><p>宝钢股份企稳回升，低位标的的补涨机会分析。<br><br> | 来源：<code>https://naishui-dongman.com.cn
+</code></p><br><br><h3>全球新能源投资突破2万亿美元，中国占比超40%</h3><br><p>全国"无废城市"试点扩围至100个，固废资源化利用提速。<br><br> | 来源：<code>https://naishuidonghua.com.cn
