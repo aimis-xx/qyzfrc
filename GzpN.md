@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>原油价格突破85美元/桶，油气开采板块盈利提升</h3><br><p>中国铁人三项队亚洲杯夺冠，耐力项目实力跻身亚洲前列。<br><br> | 来源：<code>https://yiqicaoshipin.com.cn
+</code></p><br><br><h3>东数西算工程新节点开工，IDC算力板块走强</h3><br><p>中国国际象棋队世锦赛包揽全部金牌，智力运动世界第一。<br><br> | 来源：<code>https://yiqicaowang.com.cn
+</code></p><br><br><h3>工业母机龙头登陆北交所，五轴机床市占率国内第一</h3><br><p>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善。<br><br> | 来源：<code>https://yiqicaozaixianguankan.com.cn
+</code></p><br><br><h3>核聚变实验装置获重大进展，可控核聚变标的异动</h3><br><p>海螺水泥水泥价格回升，单季业绩预告超预期。<br><br> | 来源：<code>https://yiquerqusanqu.com.cn
+</code></p><br><br><h3>中芯国际单季盈利创历史新高，半导体板块全线走强</h3><br><p>上半年全国文化产业营收同比增长14%，文旅融合加速。<br><br> | 来源：<code>https://yiren-jiujiu.com.cn
+</code></p><br><br><h3>实控人邀约收购家电出海龙头，溢价30%发起全面要约</h3><br><p>量子通信标的启动申购，干线网络建设订单同比翻倍。<br><br> | 来源：<code>https://yiren-zaixian.com.cn
+</code></p><br><br><h3>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发</h3><br><p>养老服务体系建设政策，养老产业标的全线走强。<br><br> | 来源：<code>https://yongbaoqingchun.com.cn
+</code></p><br><br><h3>航发动力放量拉升5.2%，军工发动机订单落地加速</h3><br><p>控股股东耗资3亿增持汽车电子标的，回购股份用于股权激励。<br><br> | 来源：<code>https://yongjiuri.com.cn
+</code></p><br><br><h3>苏州推出“姑苏八点半”升级活动，夜间消费场景拓展至全域</h3><br><p>中芯国际放量拉升7.3%，14nm产能利用率持续提升。<br><br> | 来源：<code>https://yongli-huanggong.com.cn
+</code></p><br><br><h3>上半年全国铁路固定资产投资完成4500亿元，基建稳步推进</h3><br><p>上半年全国居民消费支出同比增长7.3%，服务消费占比提升。<br><br> | 来源：<code>https://youqihuafei.org.cn
+</code></p><br><br><h3>机构专用席位净买入智飞生物8300万，疫苗龙头获长线加仓</h3><br><p>中国建筑涨超2.8%，基建订单持续饱满。<br><br> | 来源：<code>https://youren-de-feixing.com.cn
+</code></p><br><br><h3>三一重工数字化转型：工程机械龙头的效率提升路径</h3><br><p>零跑汽车高性价比路线：下沉市场新能源车企的成长逻辑。<br><br> | 来源：<code>https://youshuiruoruo.com.cn
+</code></p><br><br><h3>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化</h3><br><p>美联储连续第二次降息，北向资金单日净流入超百亿。<br><br> | 来源：<code>https://youyoushipin.com.cn
+</code></p><br><br><h3>央行下调MLF利率10个基点，引导市场利率下行</h3><br><p>机构资金集中买入海大集团6300万，饲料龙头获机构抱团。<br><br> | 来源：<code>https://yuan-qiansui.com.cn
+</code></p><br><br><h3>电感产品价格上涨3%，电子全产业链盈利优化</h3><br><p>全国戏曲进乡村演出超百万场，传统艺术扎根基层。<br><br> | 来源：<code>https://yuan-shen-benzi.com.cn
+</code></p><br><br><h3>全国首套房住房贷款"认房不认贷"政策全面落地</h3><br><p>九寨沟暑期恢复全部开放，单日接待游客量突破4万。<br><br> | 来源：<code>https://yuan-shenbenzi.com.cn
+</code></p><br><br><h3>恩捷股份异动拉升5.4%，锂电池隔膜份额持续提升</h3><br><p>中国与海湾国家合作深化，能源、金融多领域协同发展。<br><br> | 来源：<code>https://yuan-zhi-kong.com.cn
+</code></p><br><br><h3>AI绘画工具用户破亿，国潮风格生成模型成爆款</h3><br><p>比亚迪AH股同步走强，新能源整车板块领涨两市。<br><br> | 来源：<code>https://yuanfende.com.cn
+</code></p><br><br><h3>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期</h3><br><p>知名私募大手笔增持TOPCon电池标的，持仓占比达4%。<br><br> | 来源：<code>https://yuankongzhi.com.cn
+</code></p><br><br><h3>全国县域商业体系建设完成，农村消费市场潜力持续释放</h3><br><p>CBA联赛总决赛收视率创新高，本土球员表现亮眼。<br><br> | 来源：<code>https://yuanshen-benzi.com.cn
