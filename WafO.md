@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分53秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全球海洋经济规模突破3万亿美元，蓝色经济成新增长点</h3><br><p>文化产业扶持政策，文化传媒板块全线异动。<br><br> | 来源：<code>https://1996-zhicheng-guoji.com
+</code></p><br><br><h3>梅花生物异动拉升3.1%，氨基酸产品价格反弹</h3><br><p>5年期LPR下调带动房企开发贷利率下行，房企盈利改善。<br><br> | 来源：<code>https://2026worldcup-guanwang-vip.com
+</code></p><br><br><h3>厄尔尼诺现象加剧，农业抗旱标的全线走强</h3><br><p>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏。<br><br> | 来源：<code>https://2121-feifan-entry.com
+</code></p><br><br><h3>丽江暑期民宿入住率达95%，云南文旅市场持续回暖</h3><br><p>洛阳龙门石窟暑期推出夜游项目，门票上线即秒空。<br><br> | 来源：<code>https://2121-feifan-official.com
+</code></p><br><br><h3>天齐锂业锂矿资源储备：全球锂矿龙头的资源禀赋优势</h3><br><p>北向资金连续加仓通威股份，光伏龙头获外资长线布局。<br><br> | 来源：<code>https://2pg-login-reg.com
+</code></p><br><br><h3>电阻产品价格上调4%，被动元件板块迎来行情</h3><br><p>房地产融资白名单出台，优质房企板块走强。<br><br> | 来源：<code>https://3dshipin.com.cn
+</code></p><br><br><h3>电源芯片价格上涨7%，模拟芯片板块景气回升</h3><br><p>机构席位大额买入四川路桥1.3亿，区域基建龙头获长线布局。<br><br> | 来源：<code>https://432-yinghuang-app.com
+</code></p><br><br><h3>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局</h3><br><p>中国通号高铁信号订单高增，单季业绩预告超预期。<br><br> | 来源：<code>https://4688tv.com.cn
+</code></p><br><br><h3>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长</h3><br><p>医疗大模型通过三类医疗器械认证，辅助诊断准确率超98%。<br><br> | 来源：<code>https://51-anwang.com.cn
+</code></p><br><br><h3>国产综艺节目海外版权输出量同比增长60%</h3><br><p>中国游泳队世锦赛斩获5金，打破2项世界纪录领跑泳坛。<br><br> | 来源：<code>https://512vip-kaiyuan-official.com
+</code></p><br><br><h3>雄安新区建设新进展，雄安基建标的集体异动</h3><br><p>AI绘画工具用户破亿，国潮风格生成模型成爆款。<br><br> | 来源：<code>https://51chi-guawang.com.cn
+</code></p><br><br><h3>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张</h3><br><p>贵州茅台前三季度营收破千亿，业绩预告超预期。<br><br> | 来源：<code>https://51chiguayuming.com.cn
+</code></p><br><br><h3>国内老年文旅市场升温，银发游订单同比增长70%</h3><br><p>欧元区经济走出衰退，二季度GDP环比增长0.3%。<br><br> | 来源：<code>https://51dashijian.com.cn
+</code></p><br><br><h3>广深铁路放量上涨3.1%，铁路客运收入回暖</h3><br><p>基金公司集体到访氢能龙头，燃料电池车推广进度超预期。<br><br> | 来源：<code>https://51hei-liao.com.cn
+</code></p><br><br><h3>机构+北向合力买入当升科技8200万，正极材料标的布局</h3><br><p>美国通胀回落至2.5%，为后续进一步降息打开空间。<br><br> | 来源：<code>https://52-pojie.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%</h3><br><p>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置。<br><br> | 来源：<code>https://52662-dingsheng-official.com
+</code></p><br><br><h3>新疆交建新疆基建项目爆发，单季业绩预告超预期</h3><br><p>需求侧响应政策落地，电力营销板块集体上涨。<br><br> | 来源：<code>https://6686-online-login.com
+</code></p><br><br><h3>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%</h3><br><p>游资知名席位联手买入登海种业5600万，种业标的获追捧。<br><br> | 来源：<code>https://728-android-old.com
+</code></p><br><br><h3>中国电建新能源电站运营：电力工程龙头的第二成长曲线</h3><br><p>人民币国际化进程加速，跨境贸易人民币结算占比提升至38%。<br><br> | 来源：<code>https://800-quanxun-baicai.com
+</code></p><br><br><h3>天齐锂业债务优化：高负债锂矿龙头的财务健康度改善</h3><br><p>世界贸易组织第13届部长级会议召开，达成多项多边协议。<br><br> | 来源：<code>https://8268-caipiao-official.com
