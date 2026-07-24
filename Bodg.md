@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时22分52秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国电南瑞电网自动化优势：国内电网信息化龙头的价值</h3><br><p>知名私募组团调研MR产业链标的，新品备货数据曝光。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>革命老区振兴发展新政策落地，缩小区域发展差距</h3><br><p>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>武汉水上马拉松开跑，千名泳者畅游长江挑战自我</h3><br><p>小鹏汽车智能驾驶优势：新势力车企的技术差异化路径。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>低空经济发展规划出台，低空经济标的拉升</h3><br><p>全国居民平均每日运动时长超1小时，运动习惯逐步养成。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>中国平安综合金融版图：保险+银行+投资的协同优势</h3><br><p>三一重工放量上涨，工程机械行业景气度边际改善。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>杭州马拉松开跑，3.5万跑者体验钱塘江赛道</h3><br><p>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%</h3><br><p>薯片产品价格上调4%，零食板块迎来涨价催化。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>万科A存量资产运营：商业地产+物流地产的第二曲线</h3><br><p>全国煤化工行业低碳改造完成，碳排放强度下降20%。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>武汉水上马拉松开跑，千名泳者畅游长江挑战自我</h3><br><p>中际旭创再创阶段新高，光模块赛道高景气延续。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>锌价突破2.8万元/吨，锌业上市公司盈利弹性释放</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>外资机构集中调研短视频出海标的，海外用户规模破亿</h3><br><p>全国红树林面积增至3万公顷，成为海洋生态保护标杆。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>全国PM2.5平均浓度同比下降8%，空气质量优良天数比率达87.5%</h3><br><p>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>全国美术馆年展览超2万场，艺术惠民覆盖千万群众</h3><br><p>青海湖暑期环湖游热度飙升，自驾游客占比超80%。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>教育部发布新规，义务教育阶段课后服务实现全覆盖</h3><br><p>希腊经济强劲复苏，成为欧元区增长明星。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>机构席位大额买入澜起科技8500万，内存芯片龙头获布局</h3><br><p>存款利率迎来新一轮下调，银行板块短期承压负债端改善。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>超230家机构到访工业软件龙头，研发设计软件付费转化率</h3><br><p>全国水泥行业碳减排技术升级，低碳生产线占比超60%。<br><br> | 来源：<code>www.shutaotc.cn
+</code></p><br><br><h3>青岛暑期滨海旅游订单同比增长40%，海滨城市人气高涨</h3><br><p>全国居民人均体育消费支出同比增长15%，运动成为生活方式。<br><br> | 来源：<code>www.easome.cn
+</code></p><br><br><h3>全球教育科技市场规模突破4000亿美元，线上教育持续普及</h3><br><p>中国通号高铁信号订单高增，单季业绩预告超预期。<br><br> | 来源：<code>www.toolzhe.cn
+</code></p><br><br><h3>存储模组龙头登陆科创板，AI存储产品出货量超行业预期</h3><br><p>中国桥牌队世锦赛夺得冠军，高端智力运动跻身世界前列。<br><br> | 来源：<code>www.silvertimes.cn
+</code></p><br><br><h3>社保基金现身工业AI龙头调研，行业渗透率数据首次公开</h3><br><p>5年期LPR超预期下调，房企融资环境边际改善。<br><br> | 来源：<code>www.ahhaiquan.cn
