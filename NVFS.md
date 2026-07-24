@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分12秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>东方电缆海缆技术壁垒：海上风电海缆龙头的领先地位</h3><br><p>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定。<br><br> | 来源：<code>https://m-mogushipin.com.cn
+</code></p><br><br><h3>锂价连续反弹15%，锂矿板块迎来趋势性行情启动</h3><br><p>全国远程医疗覆盖所有县域，优质医疗资源下沉至基层。<br><br> | 来源：<code>https://madou-chuanmei.com.cn
+</code></p><br><br><h3>中国国际象棋队世锦赛包揽全部金牌，智力运动世界第一</h3><br><p>中国手球俱乐部首次获得亚洲冠军，项目发展迎来新机遇。<br><br> | 来源：<code>https://madou-cm-chuanmei-zaixian-gaoqing.com.cn
+</code></p><br><br><h3>工业软件扶持政策出台，工业软件标的全线拉升</h3><br><p>北约峰会发布新战略文件，调整东翼防御部署。<br><br> | 来源：<code>https://madou-shipin.com.cn
+</code></p><br><br><h3>固态电池试点线投产，固态电池产业链集体异动</h3><br><p>武当山暑期游客量突破120万人次，道教文化游持续升温。<br><br> | 来源：<code>https://madouchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>沃森生物疫苗管线布局：创新疫苗龙头的研发投入回报</h3><br><p>上半年全国网上零售额同比增长9.5%，直播电商贡献突出。<br><br> | 来源：<code>https://madouseman.com.cn
+</code></p><br><br><h3>中国铁建全球工程布局：轨交基建龙头的海外市场拓展</h3><br><p>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿。<br><br> | 来源：<code>https://madoushipin.cn
+</code></p><br><br><h3>宁德时代跳空高开6.4%，麒麟电池商业化落地加速</h3><br><p>全国新型电力系统建设提速，新能源消纳能力提升35%。<br><br> | 来源：<code>https://majiang-diannao-ban-zaixian-wan.com.cn
+</code></p><br><br><h3>全国PPI同比由负转正，工业企业盈利预期持续改善</h3><br><p>机构资金集中买入牧原股份2.5亿，养殖龙头获机构抱团。<br><br> | 来源：<code>https://majiang-hu-le-moniqi.com.cn
+</code></p><br><br><h3>中国排球队世界联赛夺冠，三大球集体项目重回巅峰</h3><br><p>社保基金新进汽车座椅龙头，布局汽车轻量化赛道。<br><br> | 来源：<code>https://majiang-hu-le.com.cn
+</code></p><br><br><h3>调味品开启集体涨价，食品板块盈利迎来修复</h3><br><p>养老金新进创新药龙头，布局创新管线长期成长逻辑。<br><br> | 来源：<code>https://majiang-hule-17w.com
+</code></p><br><br><h3>央行新增5000亿元支小再贷款，精准支持小微企业发展</h3><br><p>全国南水北调沿线生态廊道建成，水质稳定保持Ⅱ类。<br><br> | 来源：<code>https://majiang-youxi-zaixian-wan.com.cn
+</code></p><br><br><h3>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团</h3><br><p>世界文化遗产新增2处，我国世遗总数增至60处。<br><br> | 来源：<code>https://majiang-zaixian-wan-mianfei-wangye-ban.com.cn
+</code></p><br><br><h3>海尔智家全球化品牌布局：多品牌矩阵下的全球份额扩张</h3><br><p>自由贸易试验区扩围，自贸港本地股异动。<br><br> | 来源：<code>https://majiang-zaixian-wan.com.cn
+</code></p><br><br><h3>西部大开发新规划出台，西部基建标的全线拉升</h3><br><p>兆易创新存储芯片价格反弹，前三季度业绩预增超70%。<br><br> | 来源：<code>https://mama-depengyouzaixianguankan.com.cn
+</code></p><br><br><h3>乳制品质量升级政策，乳业龙头标的全线异动</h3><br><p>储能大项目集中并网，大储板块迎来行情催化。<br><br> | 来源：<code>https://mama-zhudong-suo-wen-erzi-de-xinlijibing.com.cn
+</code></p><br><br><h3>全国人均体育场地面积达2.8平方米，健身设施供给持续增加</h3><br><p>中国攀岩队世锦赛夺得2金，速度攀岩世界纪录多次被打破。<br><br> | 来源：<code>https://mamadepengyou.com.cn
+</code></p><br><br><h3>北方稀土突破前期平台，短线弹性有望释放</h3><br><p>全球卫星互联网用户突破1亿，太空经济进入爆发期。<br><br> | 来源：<code>https://mamahema.com.cn
+</code></p><br><br><h3>容百科技高镍正极技术：锂电高镍化趋势下的龙头受益</h3><br><p>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放。<br><br> | 来源：<code>https://manhuatiantang.com.cn
+</code></p><br><br><h3>大北农种业业务放量，前三季度业绩预增超55%</h3><br><p>特高压工程集中获批，电网设备板块全线异动。<br><br> | 来源：<code>https://manhuatong.com.cn
