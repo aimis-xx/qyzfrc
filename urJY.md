@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分57秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北向资金单日净流入120亿，核心资产获外资集中扫货</h3><br><p>养老金现身特高压龙头调研，海外工程落地节奏引热议。<br><br> | 来源：<code>https://huanggua-yingyuan.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研智能电网标的，特高压设备中标数据</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>https://huangguachuanmei.com.cn
+</code></p><br><br><h3>全国珠江流域生态补水工程启动，流域生态流量保障达标</h3><br><p>比亚迪涨超6.7%，刀片电池外供比例持续提升。<br><br> | 来源：<code>https://huangguan-sports-pro.com.cn
+</code></p><br><br><h3>中国女篮亚洲杯夺冠，时隔12年重登亚洲之巅</h3><br><p>机器人减速器标的启动申购，谐波减速器国产替代率突破50%。<br><br> | 来源：<code>https://huangguanqiutan.com.cn
+</code></p><br><br><h3>全国居民恩格尔系数降至28.5%，消费结构持续优化升级</h3><br><p>多式联运示范工程落地，物流枢纽板块走强。<br><br> | 来源：<code>https://huangguashipinapp.cn
+</code></p><br><br><h3>华友钴业全产业链布局：新能源金属的全球龙头成长路径</h3><br><p>硅锰价格单月上涨9%，铁合金板块盈利改善。<br><br> | 来源：<code>https://huangguashipinwangyeban.com.cn
+</code></p><br><br><h3>西藏暑期游热度创新高，进藏游客人次同比增长130%</h3><br><p>私募基金仓位创年内新高，私募重仓标的上涨。<br><br> | 来源：<code>https://huangguashipinzaixian.cn
+</code></p><br><br><h3>北向资金大额增持中兴通讯，通信龙头外资持仓环比大增</h3><br><p>国内AI算力网络国家枢纽节点全部建成，实现算力全国调度。<br><br> | 来源：<code>https://huangguashipinzaixianguankan.cn
+</code></p><br><br><h3>全国居民人均体育消费支出同比增长15%，运动成为生活方式</h3><br><p>5年期以上LPR大幅下调20BP，地产链板块全线异动。<br><br> | 来源：<code>https://huangguatv.com.cn
+</code></p><br><br><h3>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧</h3><br><p>乳制品价格小幅上调，乳业龙头盈利边际改善。<br><br> | 来源：<code>https://huangguavideos.cn
+</code></p><br><br><h3>全国城市建成区绿化覆盖率达42%，人均公园绿地面积15平方米</h3><br><p>中国冲浪队首次获得世界冠军，水上运动版图持续扩大。<br><br> | 来源：<code>https://huangguayingshizaixiankan.com.cn
+</code></p><br><br><h3>隆平高科涨超4.4%，转基因商业化推进加速</h3><br><p>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露。<br><br> | 来源：<code>https://huangguazhibo.com.cn
+</code></p><br><br><h3>中国男子射箭队世锦赛团体夺冠，打破韩国长期垄断</h3><br><p>浙江建投区域基建订单饱满，单季业绩预告超预期。<br><br> | 来源：<code>https://huangmantiantang.com.cn
+</code></p><br><br><h3>数据要素政策落地，数据确权板块全线上涨</h3><br><p>保险资管扎堆调研绿电运营标的，电价弹性空间引热议。<br><br> | 来源：<code>https://huangse-youxi.com.cn
+</code></p><br><br><h3>多地调整最低工资标准，最高涨幅达11.5%惠及千万劳动者</h3><br><p>知名私募调研低空飞行器标的，eVTOL适航认证进度披露。<br><br> | 来源：<code>https://huangsecangkuzuixindizhi.com.cn
+</code></p><br><br><h3>长安汽车深蓝品牌定位：主流新能源市场的差异化竞争</h3><br><p>风电塔筒价格单月上涨6%，风电制造环节盈利改善。<br><br> | 来源：<code>https://huangyewangzhan.cn
+</code></p><br><br><h3>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域</h3><br><p>上半年全国航空航天制造业营收同比增长22%。<br><br> | 来源：<code>https://huangyou-daquan.com.cn
+</code></p><br><br><h3>硅片价格单月上涨5%，光伏制造环节盈利边际改善</h3><br><p>外资机构席位净买入中国交建5700万，基建龙头获外资加仓。<br><br> | 来源：<code>https://huangyou-tuijian.com.cn
+</code></p><br><br><h3>实控人兜底式增持AI大模型标的，员工参与规模超预期</h3><br><p>高管团队集体调研后集中增持6G通信标的，合计增持超1亿。<br><br> | 来源：<code>https://huangyou-wang.com.cn
+</code></p><br><br><h3>老旧小区改造升级，家装家居标的全线拉升</h3><br><p>降准降息组合利好地产链，建材板块迎来估值修复。<br><br> | 来源：<code>https://huangyou-wangzhan.com.cn
