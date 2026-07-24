@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分14秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>洋河股份渠道改革：白酒企业渠道优化的成功案例解析</h3><br><p>中国船舶涨超4.5%，造船行业订单持续饱满。<br><br> | 来源：<code>https://kaiyun-con-web.com.cn
+</code></p><br><br><h3>全国二手车交易量上半年突破1000万辆，流通市场活跃</h3><br><p>降准降息组合利好地产链，建材板块迎来估值修复。<br><br> | 来源：<code>https://kaiyun-core-pro.com.cn
+</code></p><br><br><h3>药明康德单日涨超5%，CXO板块迎来情绪拐点</h3><br><p>全国虚拟电厂调控能力突破1亿千瓦，电网灵活性大幅提升。<br><br> | 来源：<code>https://kaiyun-entry-go.com.cn
+</code></p><br><br><h3>产业链产品涨价类（100个）</h3><br><p>民用无人机管理新规，无人机产业链全线走强。<br><br> | 来源：<code>https://kaiyun-entry-pro.com.cn
+</code></p><br><br><h3>通威股份低位反弹，超跌后的修复行情持续性判断</h3><br><p>中国平安综合金融版图：保险龙头的转型进展与空间。<br><br> | 来源：<code>https://kaiyun-esports-hq.com.cn
+</code></p><br><br><h3>百亿私募组团到访人形机器人标的，核心零部件产能引关注</h3><br><p>QFII集中调研海上风电标的，深远海项目订单引热议。<br><br> | 来源：<code>https://kaiyun-football-go.com.cn
+</code></p><br><br><h3>浪潮信息AI服务器产能：国内AI服务器龙头的份额优势</h3><br><p>张家界玻璃桥暑期单日客流破3万，网红高空项目持续走红。<br><br> | 来源：<code>https://kaiyun-login-pro.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿</h3><br><p>全国运动康复中心超万家，运动损伤诊疗体系逐步完善。<br><br> | 来源：<code>https://kaiyun-official-go.com.cn
+</code></p><br><br><h3>全国"无废城市"试点扩围至100个，固废资源化利用提速</h3><br><p>游资顶级席位联手买入天齐锂业3亿，锂矿龙头获资金追捧。<br><br> | 来源：<code>https://kaiyun-official-pro.com.cn
+</code></p><br><br><h3>鸿蒙生态持续升温：相关产业链标的受益顺序解析</h3><br><p>跨境游持续升温，中国游客赴东南亚人次同比暴涨200%。<br><br> | 来源：<code>https://kaiyun-plat-vip.com.cn
+</code></p><br><br><h3>成渝双城经济圈建设三年成效显著，GDP总量突破8万亿元</h3><br><p>全国太湖流域蓝藻水华防控成效显著，水质稳定达标。<br><br> | 来源：<code>https://kaiyun-qipai-go.com.cn
+</code></p><br><br><h3>恩捷股份隔膜份额提升，单季业绩预告超预期</h3><br><p>短视频文旅内容播放量上半年突破5万亿次，种草效应带动目的地流量。<br><br> | 来源：<code>https://kaiyun-site-go.com.cn
+</code></p><br><br><h3>国内主题乐园暑期营收同比增长75%，亲子游成核心主力</h3><br><p>美联储宣布降息25BP，全球权益资产迎来估值修复窗口。<br><br> | 来源：<code>https://kaiyun-sports-auth.com.cn
+</code></p><br><br><h3>东方电缆海缆技术壁垒：海上风电海缆龙头的领先地位</h3><br><p>暑期高铁游订单同比增长50%，"坐着高铁看中国"成潮流。<br><br> | 来源：<code>https://kaiyun-sports-hq.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研虚拟电厂标的，订单爆发式增长披露</h3><br><p>国电南瑞电网自动化优势：国内电网信息化龙头的价值。<br><br> | 来源：<code>https://kaiyun-sports-net.com.cn
+</code></p><br><br><h3>料酒价格上涨4%，调味品细分板块迎来行情</h3><br><p>存储芯片价格连续上涨12%，存储板块迎来趋势性行情。<br><br> | 来源：<code>https://kaiyun-sports-official.com
+</code></p><br><br><h3>钠离子电池材料价格上涨8%，钠电池产业链盈利优化</h3><br><p>短视频文旅内容播放量上半年突破5万亿次，种草效应带动目的地流量。<br><br> | 来源：<code>https://kaiyun-sports-plat.com.cn
+</code></p><br><br><h3>百亿私募组团调研生物育种标的，玉米种子推广面积超预期</h3><br><p>高管团队集体增持宠物食品龙头，合计增持超6500万。<br><br> | 来源：<code>https://kaiyun-tiyu-go.com.cn
+</code></p><br><br><h3>中韩经贸合作升级，双边自贸协定第二阶段谈判完成</h3><br><p>养老金入市比例提升，养老金重仓标的走强。<br><br> | 来源：<code>https://kaiyun-tiyu-hq.com.cn
+</code></p><br><br><h3>外资机构集中调研跨境支付标的，海外结算规模环比大增</h3><br><p>中国西电异动拉升3.6%，输配电设备集团整合加速。<br><br> | 来源：<code>https://kaiyun-tiyu-pro.com.cn
