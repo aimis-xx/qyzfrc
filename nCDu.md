@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>外资机构集中调研跨境支付标的，海外结算规模环比大增</h3><br><p>旅游年卡覆盖超200城，一票通玩激活本地休闲消费。<br><br> | 来源：<code>https://cn-qingyule.com.cn
+</code></p><br><br><h3>上半年全国社会物流总额同比增长5.6%，物流运行效率提升</h3><br><p>全国城市篮球联赛举办，覆盖百城参赛队伍破万支。<br><br> | 来源：<code>https://cn-qiusu-vip.com.cn
+</code></p><br><br><h3>当升科技涨超5.1%，正极材料海外订单增长</h3><br><p>中国中铁一带一路布局：海外基建订单的长期增长逻辑。<br><br> | 来源：<code>https://cn-qy-tiyu.com.cn
+</code></p><br><br><h3>百亿私募组团调研碳化硅企业，车规级器件量产线投产</h3><br><p>QFII新进跨境电商龙头，海外机构看好出口高增长逻辑。<br><br> | 来源：<code>https://cn-wd-tiyu.com.cn
+</code></p><br><br><h3>中国中车异动拉升3.2%，动车组新车型交付加速</h3><br><p>全国登山健身大会覆盖百座名山，参与人次破500万。<br><br> | 来源：<code>https://cn-worldcup-huodong.com
+</code></p><br><br><h3>10年期国债收益率下行至2.5%以下，权益资产吸引力提升</h3><br><p>海康威视W底形态确立，底部反转信号明确。<br><br> | 来源：<code>https://cn-worldcup-peilv.com
+</code></p><br><br><h3>食品质量安全监管优化，头部食品标的拉升</h3><br><p>磷肥价格单月上涨8%，磷化工龙头盈利改善。<br><br> | 来源：<code>https://cn-worldcup-score-rate.com
+</code></p><br><br><h3>知名私募组团调研MR产业链标的，新品备货数据曝光</h3><br><p>亚太经合组织峰会召开，达成数字经济合作框架。<br><br> | 来源：<code>https://cn-worldcup-xiazhu.com
+</code></p><br><br><h3>全国社会体育指导员超300万人，指导群众科学健身</h3><br><p>全国虚拟电厂调控能力突破1亿千瓦，电网灵活性大幅提升。<br><br> | 来源：<code>https://cn-xiuxiushipin.com.cn
+</code></p><br><br><h3>装配式建筑推广政策，装配式建筑标的全线异动</h3><br><p>CBA联赛总决赛收视率创新高，本土球员表现亮眼。<br><br> | 来源：<code>https://cn-yamei-sports.com.cn
+</code></p><br><br><h3>首套房贷款利率突破2.9%，刚需购房成本创历史新低</h3><br><p>NBA总决赛凯尔特人4-2夺冠，塔图姆全票当选FMVP。<br><br> | 来源：<code>https://cn-yinghuashipin.com.cn
+</code></p><br><br><h3>央行加大公开市场操作力度，资金面维持平稳宽松</h3><br><p>电竞入亚成绩亮眼，电竞游戏产业链标的拉升。<br><br> | 来源：<code>https://cn91.com.cn
+</code></p><br><br><h3>中国男子体操队世锦赛团体夺冠，重回世界巅峰</h3><br><p>中印经贸合作回暖，双边贸易额同比增长15%。<br><br> | 来源：<code>https://com91.com.cn
+</code></p><br><br><h3>中印经贸合作回暖，双边贸易额同比增长15%</h3><br><p>国产古装剧出海热播，海外流媒体播放量突破10亿次。<br><br> | 来源：<code>https://cpp-official-app.com
+</code></p><br><br><h3>钯价连续上涨9%，汽车尾气催化板块盈利改善</h3><br><p>药明康德异动拉升5.2%，海外新药订单持续落地。<br><br> | 来源：<code>https://crazy-winner-aaa.com
+</code></p><br><br><h3>海尔智家稳步上行，白电行业格局持续优化</h3><br><p>国产悬疑剧全网播放量突破300亿，现实题材作品广受好评。<br><br> | 来源：<code>https://csfgae.cn
+</code></p><br><br><h3>存款利率迎来新一轮下调，银行板块短期承压负债端改善</h3><br><p>长三角一体化发展新规划发布，打造世界级产业集群。<br><br> | 来源：<code>https://cuimiandailaidexingfushenghuo.cn
+</code></p><br><br><h3>中国围棋队包揽亚运会全部金牌，延续项目统治力</h3><br><p>中兴通讯涨超4%，6G技术研发进度超市场预期。<br><br> | 来源：<code>https://cun-zhi-tiaozhan.com.cn
+</code></p><br><br><h3>全国游泳冠军赛落幕，多名小将打破全国纪录</h3><br><p>游资顶级席位打板梅花生物5200万，氨基酸标的获热炒。<br><br> | 来源：<code>https://da-feiji.com.cn
+</code></p><br><br><h3>超240家机构到访氢能燃料电池标的，商用车推广数据公开</h3><br><p>钠离子电池实现装车应用，钠电池产业链全线爆发。<br><br> | 来源：<code>https://da-xiangjiao-yiren-wang.com.cn
