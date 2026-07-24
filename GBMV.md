@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍</h3><br><p>新疆交建一带一路优势：新疆区域基建的长期成长逻辑。<br><br> | 来源：<code>https://huoyingrenzhetongrenbenzi.com.cn
+</code></p><br><br><h3>美伊冲突出现缓和信号，双方开启间接谈判寻求停火路径</h3><br><p>外资机构席位净买入恒瑞医药2.4亿，创新药龙头获外资加仓。<br><br> | 来源：<code>https://huoyingrenzhetongrenyouxi.com.cn
+</code></p><br><br><h3>北向资金连续增持养老产业标的，银发经济赛道获外资流入</h3><br><p>五粮液重回160元，关键点位的多空博弈分析。<br><br> | 来源：<code>https://huoyingtong.com.cn
+</code></p><br><br><h3>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍</h3><br><p>政策性降息支持汽车消费，新能源汽车板块迎来定向利好。<br><br> | 来源：<code>https://huoyingtongren18guankanguoyuban.com.cn
+</code></p><br><br><h3>伊朗与沙特深化合作，双边贸易额同比暴涨80%</h3><br><p>招商公路涨超2.4%，公路运营龙头价值凸显。<br><br> | 来源：<code>https://huoyingwang.com.cn
+</code></p><br><br><h3>北方稀土异动拉升，稀土永磁行业供需格局优化</h3><br><p>基金公司集体到访机器人控制器标的，国产控制器市占率提升。<br><br> | 来源：<code>https://huoyingxigua.com.cn
+</code></p><br><br><h3>化肥价格集体上涨，农资板块迎来产品涨价催化</h3><br><p>上汽集团放量上涨3.5%，新能源汽车出口超预期。<br><br> | 来源：<code>https://huwailuchu.com.cn
+</code></p><br><br><h3>头部券商到访家电出海龙头，海外自主品牌占比突破40%</h3><br><p>铁矿石价格反弹10%，铁矿上市公司盈利边际改善。<br><br> | 来源：<code>https://jcomic.com.cn
+</code></p><br><br><h3>拓普集团放量拉升6.7%，汽车零部件订单超预期</h3><br><p>许继电气特高压订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://jiedian-zh.com.cn
+</code></p><br><br><h3>国产纪录片全网播放量突破150亿次，自然人文题材广受好评</h3><br><p>双汇发展肉制品盈利修复，前三季度业绩预增超20%。<br><br> | 来源：<code>https://jiejiedongman.com.cn
+</code></p><br><br><h3>草原生态保护政策，草牧业板块全线拉升</h3><br><p>游资知名席位联手买入固德威5000万，储能标的获追捧。<br><br> | 来源：<code>https://jiejiejiaohe.com.cn
+</code></p><br><br><h3>厦门鼓浪屿暑期日均客流超12万，文艺文旅产品受年轻人追捧</h3><br><p>北方稀土政策壁垒：稀土开采总量控制下的稀缺性价值。<br><br> | 来源：<code>https://jiemei-nuli.com.cn
+</code></p><br><br><h3>中国中车海外订单落地，单季业绩预告超预期</h3><br><p>外资机构集中调研存储芯片龙头，海外订单情况成焦点。<br><br> | 来源：<code>https://jin-bao-bo.com.cn
+</code></p><br><br><h3>国内主题乐园暑期营收同比增长75%，亲子游成核心主力</h3><br><p>氢能示范城市群政策落地，氢能源板块全线走强。<br><br> | 来源：<code>https://jin-man-tiantang-benzi.com.cn
+</code></p><br><br><h3>北向资金单日净流入超150亿，降息后外资加速入场</h3><br><p>金龙汽车海外客车出口翻倍，前三季度业绩预增超60%。<br><br> | 来源：<code>https://jin-man-tiantang-fabuye.com.cn
+</code></p><br><br><h3>北向资金举牌工业机器人龙头，外资持仓创历史新高</h3><br><p>超230家机构到访工业软件龙头，研发设计软件付费转化率。<br><br> | 来源：<code>https://jin-man-tiantang-guan-wang.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏</h3><br><p>非洲自贸区正式启动运营，覆盖13亿人口形成统一大市场。<br><br> | 来源：<code>https://jin-man-tiantang-wangye-ban.com.cn
+</code></p><br><br><h3>金风科技异动拉升4.5%，海上风电装机量超预期</h3><br><p>万科A异动，地产链政策宽松预期持续升温。<br><br> | 来源：<code>https://jin-man-tiantang-xiazai.com.cn
+</code></p><br><br><h3>锦浪科技涨超7.0%，组串式逆变器出口高增</h3><br><p>创新药管线进入收获期：CXO、生物医药的行情持续性。<br><br> | 来源：<code>https://jin-man-tiantang.com.cn
+</code></p><br><br><h3>公募基金发行回暖，基金重仓标的集体拉升</h3><br><p>知名私募大手笔增持储能电池标的，海外户储订单获资本布局。<br><br> | 来源：<code>https://jin-mantiantang.com.cn
