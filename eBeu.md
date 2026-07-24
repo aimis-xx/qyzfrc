@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分14秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%</h3><br><p>运达股份放量上涨5.3%，风电整机盈利修复。<br><br> | 来源：<code>https://pro-jinbao-sports.com.cn
+</code></p><br><br><h3>国产大模型出海加速，东南亚市场份额突破30%</h3><br><p>赛力斯华为车型销量破10万，单季业绩减亏超预期。<br><br> | 来源：<code>https://pro-js-tiyu.com.cn
+</code></p><br><br><h3>上合组织峰会召开，新增3个成员国组织规模进一步扩大</h3><br><p>3D生成大模型技术突破，1分钟生成高精度工业模型。<br><br> | 来源：<code>https://pro-leisusports.com.cn
+</code></p><br><br><h3>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍</h3><br><p>长鑫存储DDR5产能释放，内存芯片标的集体上涨。<br><br> | 来源：<code>https://pro-manguan-vip.com.cn
+</code></p><br><br><h3>半导体国产替代推进：制造、设备、材料的突破路径</h3><br><p>中通客车异动拉升4.1%，海外市场拓展加速。<br><br> | 来源：<code>https://pro-pingbosports.com.cn
+</code></p><br><br><h3>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现</h3><br><p>中德经贸论坛举办，双方达成百项合作协议。<br><br> | 来源：<code>https://pro-weide-sports.com.cn
+</code></p><br><br><h3>全国社区健身站点覆盖率达100%，15分钟健身圈全面建成</h3><br><p>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发。<br><br> | 来源：<code>https://pro-xingkong-fun.com.cn
+</code></p><br><br><h3>降准定向支持科技创新，科技成长板块获流动性利好</h3><br><p>天齐锂业资源禀赋优势：锂矿龙头的盈利弹性测算。<br><br> | 来源：<code>https://pro-yameisports.com.cn
+</code></p><br><br><h3>超160家机构到访锂电回收龙头，回收处理产能利用率超90%</h3><br><p>保险资管扎堆调研绿电运营标的，电价弹性空间引热议。<br><br> | 来源：<code>https://pzhan-shipin.com.cn
+</code></p><br><br><h3>外资资管举牌固态电解质企业，下一代电池技术获外资重仓</h3><br><p>券商研究所扎堆调研智能电网标的，特高压设备中标数据。<br><br> | 来源：<code>https://qiangjian-xinwen.com.cn
+</code></p><br><br><h3>全国居民人均体育消费支出同比增长15%，运动成为生活方式</h3><br><p>全国小微企业贷款余额突破60万亿元，融资成本进一步下降。<br><br> | 来源：<code>https://qidonghua.com.cn
+</code></p><br><br><h3>全国县域经济百强榜发布，东部地区占比超七成</h3><br><p>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升。<br><br> | 来源：<code>https://qiezi-shipin-wu.com.cn
+</code></p><br><br><h3>外资单日加仓三一重工12亿，工程机械龙头获外资回流</h3><br><p>QFII集中调研休闲食品龙头，线下渠道复购率数据公开。<br><br> | 来源：<code>https://qiezi-shipin.cn
+</code></p><br><br><h3>中国平安寿险改革成效：新业务价值增速转正的底层逻辑</h3><br><p>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%。<br><br> | 来源：<code>https://qiezishipinzaixianguankan.cn
+</code></p><br><br><h3>天合光能放量上涨5.5%，N型组件渗透率持续提升</h3><br><p>长城汽车坦克系列放量，单季业绩预告超预期。<br><br> | 来源：<code>https://qiezivideos.cn
+</code></p><br><br><h3>厦门鼓浪屿暑期日均客流超12万，文艺文旅产品受年轻人追捧</h3><br><p>海康威视AI业务高增，单季净利润同比增45%。<br><br> | 来源：<code>https://qingqingcao-shipin.com.cn
+</code></p><br><br><h3>黄山暑期游客量突破250万人次，山岳景区预约制度优化体验</h3><br><p>职业教育法实施一周年，新增100所应用型技术大学。<br><br> | 来源：<code>https://qingqingcao.com.cn
+</code></p><br><br><h3>全国扬子鳄野生种群数量突破2万只，野外放归成效显著</h3><br><p>中国女子赛艇队世锦赛斩获2金，奥运备战状态火热。<br><br> | 来源：<code>https://qinwenjiejie.net.cn
+</code></p><br><br><h3>央行逆回购操作利率下调，短期资金面维持宽松</h3><br><p>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口。<br><br> | 来源：<code>https://qitianda-xing.com.cn
+</code></p><br><br><h3>2026年全球经济增速达3.2%，实现温和复苏稳步增长</h3><br><p>全国国民体质达标率达90%，国民身体素质稳步提升。<br><br> | 来源：<code>https://qiu-xia-yingyuan.com.cn
