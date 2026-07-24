@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>世界大学排名发布，清华北大首次双双跻身全球前十</h3><br><p>存量房贷利率下调后居民消费回升，旅游酒店板块受益。<br><br> | 来源：<code>https://re-jiujiu.com.cn
+</code></p><br><br><h3>乳制品质量升级政策，乳业龙头标的全线异动</h3><br><p>小鹏汽车智能驾驶优势：新势力车企的技术差异化路径。<br><br> | 来源：<code>https://ren-qi.com.cn
+</code></p><br><br><h3>一带一路十周年峰会召开，中字头基建标的拉升</h3><br><p>国内自驾游人次破10亿，新能源自驾路线成热门选择。<br><br> | 来源：<code>https://renqidonghua.com.cn
+</code></p><br><br><h3>机构资金集中买入阳光电源3.8亿，逆变器龙头获机构抱团</h3><br><p>全国桨板赛事超百场，水上运动参与人数破千万。<br><br> | 来源：<code>https://renqilierenmanhua.com.cn
+</code></p><br><br><h3>天齐锂业债务优化：高负债锂矿龙头的财务健康度改善</h3><br><p>海南自贸港封关运作准备全面就绪，政策红利加速释放。<br><br> | 来源：<code>https://renren-chucai-official.com
+</code></p><br><br><h3>卓胜微放量拉升5.7%，射频芯片行业景气度回升</h3><br><p>全国钢铁行业超低排放改造完成，减排效果达国际先进水平。<br><br> | 来源：<code>https://ri-han-zaixian.com.cn
+</code></p><br><br><h3>存款利率市场化改革深化，银行负债成本持续优化</h3><br><p>药明康德全球竞争力研究：CXO赛道的长期成长逻辑。<br><br> | 来源：<code>https://ri-han.com.cn
+</code></p><br><br><h3>自驾游市场上半年订单同比增长55%，房车旅行成为新选择</h3><br><p>游戏出海企业登陆创业板，海外流水占比超70%引资金热捧。<br><br> | 来源：<code>https://ri-hanmianfeizaixianguankan.com.cn
+</code></p><br><br><h3>西湖暑期游客量突破600万人次，免费景区持续释放民生红利</h3><br><p>QFII大幅加仓光伏支架标的，跟踪支架海外渗透率提升获看好。<br><br> | 来源：<code>https://ri-hanshipin.com.cn
+</code></p><br><br><h3>绿色建材认证政策，绿色建材板块走强</h3><br><p>中国冲浪队首次获得世界冠军，水上运动版图持续扩大。<br><br> | 来源：<code>https://ri-hanzaixian.com.cn
+</code></p><br><br><h3>中际旭创800G光模块放量，前三季度业绩预增130%</h3><br><p>上半年全国光伏组件出口同比增长28%，全球市场份额超92%。<br><br> | 来源：<code>https://ri-hanzhongwenzimu.com.cn
+</code></p><br><br><h3>大秦铁路煤炭运输优势：重载铁路龙头的稳定现金流</h3><br><p>铜价创半年新高，铜业上市公司盈利迎来边际改善。<br><br> | 来源：<code>https://riben-yiji-bu-ka-yier-qu.com.cn
+</code></p><br><br><h3>疫情新变种出现，医药防护板块集体走强</h3><br><p>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定。<br><br> | 来源：<code>https://ribenjiujiujiu.com.cn
+</code></p><br><br><h3>海产品全产业链涨价，水产板块全面异动</h3><br><p>高管团队集体调研后集中增持6G通信标的，合计增持超1亿。<br><br> | 来源：<code>https://ribennuyou.com.cn
+</code></p><br><br><h3>亚星客车放量上涨3.9%，新能源客车盈利改善</h3><br><p>地下综合管廊规划，地下管网标的全线异动。<br><br> | 来源：<code>https://ribenyiji.cn
+</code></p><br><br><h3>暑期托管服务全面推行，免费提供兴趣课程和作业辅导</h3><br><p>兆易创新涨超4.4%，存储芯片价格触底反弹。<br><br> | 来源：<code>https://ribenyiji.com.cn
+</code></p><br><br><h3>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团</h3><br><p>中芯国际放量突破平台，短线多头力量持续增强。<br><br> | 来源：<code>https://ribenyijibukayierqu.com.cn
+</code></p><br><br><h3>炒股到最后拼的是心态：再好的牛股拿不住也是白搭</h3><br><p>地方国资战略入股氢能燃料电池标的，助力商用车推广落地。<br><br> | 来源：<code>https://rihan-wuma.com.cn
+</code></p><br><br><h3>洋河股份梦之蓝放量，单季业绩预告超预期</h3><br><p>上半年全国智能手机出货量同比增长7%，国产品牌占比提升。<br><br> | 来源：<code>https://rihan-zaixian.com.cn
+</code></p><br><br><h3>长城汽车品类创新能力：坦克+欧拉的产品差异化逻辑</h3><br><p>财政部出台减税降费新政，全年为企业减负超1.2万亿元。<br><br> | 来源：<code>https://rihanjingpin.com.cn
