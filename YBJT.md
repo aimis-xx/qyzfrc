@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分02秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>固德威户用储能爆发，单季业绩预告超预期</h3><br><p>实控人邀约收购中药创新药企业，溢价35%发起全面要约。<br><br> | 来源：<code>https://taose-shipin.com.cn
+</code></p><br><br><h3>全国社区运动会覆盖千城，群众家门口参与体育赛事</h3><br><p>汽车零部件赛道景气度上行：细分方向机会全梳理。<br><br> | 来源：<code>https://taozishipinapp.com.cn
+</code></p><br><br><h3>虚拟电厂建设导则出台，虚拟电厂标的全线拉升</h3><br><p>进口博览会政策红利，进口贸易板块全线走强。<br><br> | 来源：<code>https://tian-bo-tiyu.com.cn
+</code></p><br><br><h3>敦煌研究院数字文创营收突破5亿元，千年文化触达年轻群体</h3><br><p>华为星闪技术大规模商用，相关产业链标的领涨。<br><br> | 来源：<code>https://tian-mei-chuanmei.com.cn
+</code></p><br><br><h3>证监会启动全面注册制优化改革，提升资本市场包容性</h3><br><p>中国男子射箭队世锦赛团体夺冠，打破韩国长期垄断。<br><br> | 来源：<code>https://tianmeichuanmei.com.cn
+</code></p><br><br><h3>先导智能技术积累：锂电设备全球龙头的核心竞争力</h3><br><p>东方电气放量上涨4.1%，风电设备订单饱满。<br><br> | 来源：<code>https://tiantang-manhua.com.cn
+</code></p><br><br><h3>定向降息支持制造业高端化，工业母机板块获定向利好</h3><br><p>机构资金联手买入派能科技1.7亿，储能龙头获机构抱团。<br><br> | 来源：<code>https://tiantang91wang.cn
+</code></p><br><br><h3>药明康德MACD金叉，技术指标共振带来布局机会</h3><br><p>自由贸易试验区扩围，自贸港本地股异动。<br><br> | 来源：<code>https://tiantangjinman-zh.com.cn
+</code></p><br><br><h3>全国城市公共交通新能源化率达100%，零排放出行普及</h3><br><p>音乐节市场上半年演出超500场，年轻群体消费占比超80%。<br><br> | 来源：<code>https://tiantangjinman.com.cn
+</code></p><br><br><h3>知名私募调研量子通信标的，干线网络建设落地节奏披露</h3><br><p>闻泰科技异动拉升4.9%，半导体ODM业务盈利修复。<br><br> | 来源：<code>https://tiantangmanhuawang.com.cn
+</code></p><br><br><h3>成渝双城经济圈政策加码，成渝板块标的全线上涨</h3><br><p>全国船舶排放控制区扩大，海运污染减排成效突出。<br><br> | 来源：<code>https://tiantian-dongman.com.cn
+</code></p><br><br><h3>生活用纸价格上调4%，生活用纸龙头盈利提升</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>https://tiantian-shuang-yeye-shuang.com.cn
+</code></p><br><br><h3>小鹏汽车异动拉升9.2%，新车型交付量超预期</h3><br><p>安徽建工涨超3.6%，长三角基建订单持续落地。<br><br> | 来源：<code>https://tiantiandongmanwang.com.cn
+</code></p><br><br><h3>2026年上半年国内旅游人次突破30亿，同比增长18%</h3><br><p>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大。<br><br> | 来源：<code>https://tiantianwang.com.cn
+</code></p><br><br><h3>实控人溢价25%增持电力现货交易标的，传递价值低估信号</h3><br><p>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加。<br><br> | 来源：<code>https://tiantianzonghewang.com.cn
+</code></p><br><br><h3>实控人邀约收购家电出海龙头，溢价30%发起全面要约</h3><br><p>主题乐园暑期游客量突破1亿人次，IP衍生消费持续增长。<br><br> | 来源：<code>https://tingting-se-tu.com.cn
+</code></p><br><br><h3>美欧贸易谈判达成协议，解决钢铁铝关税争端</h3><br><p>国家发改委出台促消费20条新政，重点支持汽车家电消费。<br><br> | 来源：<code>https://tingting-zonghe.com.cn
+</code></p><br><br><h3>中国男子网球选手闯入ATP巡回赛决赛，创历史最佳排名</h3><br><p>国内自驾游人次破10亿，新能源自驾路线成热门选择。<br><br> | 来源：<code>https://tingtingwuyuetian.com.cn
+</code></p><br><br><h3>保利发展央企销售高增，前三季度业绩预增超20%</h3><br><p>内蒙古草原暑期游火爆，那达慕大会吸引超百万游客参与。<br><br> | 来源：<code>https://tongrenbaodi.com.cn
+</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>中国滑板队奥运会夺得银牌，新兴项目快速崛起。<br><br> | 来源：<code>https://tongrenbenzi.com.cn
