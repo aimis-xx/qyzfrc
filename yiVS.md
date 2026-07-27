@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>西安兵马俑暑期日均客流超7万，智慧分流系统提升游览体验</h3><br><p>跨境支付龙头登陆港股，海外结算规模年增速超80%。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>城市更新行动政策，城市更新板块走强</h3><br><p>国际地缘与全球经济（100条）。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>QFII新进汽车芯片标的，MCU国产替代获海外机构看好</h3><br><p>化肥价格集体上涨，农资板块迎来产品涨价催化。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>实控人溢价20%增持氢能龙头，传递公司价值被低估信号</h3><br><p>北向资金连续调研后举牌智能电网标的，外资持续流入。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值</h3><br><p>知名私募大手笔增持数字人民币标的，持仓占比突破3%。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>全国绿色电力消费占比达28%，工业绿电使用比例大幅提升</h3><br><p>铁矿石价格反弹10%，铁矿上市公司盈利边际改善。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>外资机构席位净买入沪硅产业8000万，硅片龙头获外资加仓</h3><br><p>金龙汽车海外客车出口翻倍，前三季度业绩预增超60%。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>浙江建投区域基建优势：浙江基建龙头的区域资源壁垒</h3><br><p>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>中国围棋AI算法登顶世界，人工智能助力棋类运动发展</h3><br><p>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>全国体育旅游精品线路超千条，带动沿线经济发展</h3><br><p>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>养老金现身特高压龙头调研，海外工程落地节奏引热议</h3><br><p>超180家机构到访汽车轻量化标的，一体化压铸产能释放。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>大模型在航空领域应用，飞行模拟训练效率提升30%</h3><br><p>巴黎奥运会中国代表团斩获42金，位列金牌榜第二位。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>控股股东耗资5亿大手笔增持AI算力龙头，彰显长期发展信心</h3><br><p>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>游资知名席位联手买入中微公司1.3亿，刻蚀设备标的追捧</h3><br><p>山西汾酒渠道下沉：清香型白酒的全国化深度渗透逻辑。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>头部机构组团到访医美耗材龙头，新品获批进度超预期</h3><br><p>美联储降息周期开启，北向资金单周净流入超300亿。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>存量房贷利率下调释放万亿现金流，可选消费板块弹性最大</h3><br><p>药明康德异动拉升5.2%，海外新药订单持续落地。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>央行逆回购操作利率下调，短期资金面维持宽松</h3><br><p>中国电建新能源运营盈利高增，单季业绩预增超25%。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>全国光伏装机容量突破9亿千瓦，分布式光伏占比超60%</h3><br><p>全国老年大学体育课程覆盖超千万老人，健康老龄化推进。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>招商银行零售银行优势：国内零售银行龙头的经营质量</h3><br><p>天顺风能风电塔架布局：风电零部件龙头的全球份额。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>公募基金集中调研电力现货交易标的，交易系统订单翻倍</h3><br><p>饼干产品价格上涨3%，食品细分板块盈利提升。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>湖南投资涨超2.1%，长沙路桥业务持续向好</h3><br><p>全国居民人均体育消费支出同比增长15%，运动成为生活方式。<br><br> | 来源：<code>www.chtea.ac.cn
