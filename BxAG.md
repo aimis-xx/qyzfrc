@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国平安涨超3.4%，寿险新业务价值增速转正</h3><br><p>中航沈飞涨超4.7%，军机交付进度超市场预期。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>公募基金发行回暖，基金重仓标的集体拉升</h3><br><p>实控人溢价25%增持电力现货交易标的，传递价值低估信号。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>三一重工突破半年线，中期趋势逐步转强</h3><br><p>千禾味业零添加差异化路线：调味品赛道的突围逻辑。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>春节档票房创历史新高，影视传媒板块集体走强</h3><br><p>汽车出口数据亮眼：自主车企、零部件的业绩增量分析。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>高管团队集体增持宠物食品龙头，合计增持超6500万</h3><br><p>零跑汽车高性价比路线：下沉市场新能源车企的成长逻辑。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>全国重点海域入海排污口整治完成，海洋污染源头管控加强</h3><br><p>降准资金定向支持三农，农业板块迎来流动性利好。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励</h3><br><p>牧原股份养殖成本下降，单季业绩预告环比扭亏。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%</h3><br><p>机构专用席位净买入温氏股份7400万，养殖龙头获长线加仓。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>全国儿童青少年近视率同比下降2%，视力防控成效显现</h3><br><p>全国新能源汽车保有量突破3000万辆，减排效果显著。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>招商银行沿20日均线上行，稳健标的的持仓节奏</h3><br><p>房贷利率下调后二手房成交回暖，家居家电需求回升。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>知名私募调研低空飞行器标的，eVTOL适航认证进度披露</h3><br><p>房贷利率动态调整机制优化，重点城市房贷利率进一步下行。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>南昌推出“红色夜校”文旅项目，夜间红色体验游受热捧</h3><br><p>容百科技高镍正极技术：锂电高镍化趋势下的龙头受益。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>多地推出夜间文旅补贴，商户夜间经营成本下降30%</h3><br><p>短剧行业监管规范落地，短剧板块情绪修复走强。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>保险资管扎堆调研养老产业标的，养老社区入住率数据披露</h3><br><p>全国研究生考试报名人数首次回落，就业导向成为报考主流。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>东方财富获机构席位净买入4.2亿，互联网券商获资金加仓</h3><br><p>生物育种企业开启新股申购，转基因商业化落地节奏领先。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>1年期MLF利率下调带动全市场利率下行，债券牛市延续</h3><br><p>全球人工智能产业规模突破5万亿美元，中美占据主导地位。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>中国保龄球队亚运会夺得金牌，小众项目实现历史性突破</h3><br><p>药明康德海外订单爆发，前三季度业绩预增超60%。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>中国女子排球队奥运夺冠，时隔12年再度站上最高领奖台</h3><br><p>控股股东耗资3亿增持汽车电子标的，回购股份用于股权激励。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>万华化学研发投入优势：化工龙头持续技术迭代的底层逻辑</h3><br><p>国内AI生成短视频用户破5亿，短视频行业迎来生产变革。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点</h3><br><p>猪肉价格触底反弹，生猪养殖标的集体走强。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>交控科技城轨信号优势：国内城轨信号系统的国产替代</h3><br><p>紫光国微特种芯片高增，单季业绩预告超预期。<br><br> | 来源：<code>www.trqgzc.com
