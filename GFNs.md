@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内在线旅游平台暑期订单破5亿，技术赋能提升预订效率</h3><br><p>乳制品价格小幅上调，乳业龙头盈利边际改善。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>固德威放量上涨7.2%，户用储能业务爆发式增长</h3><br><p>北向资金举牌广告营销龙头，AI营销高增获外资持续流入。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>三亚暑期酒店入住率超98%，高端度假产品订单暴涨</h3><br><p>登海种业玉米种子需求超预期，单季业绩预告超预期。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产</h3><br><p>国电南瑞电网自动化高增，单季业绩预告超预期。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>社保基金现身半导体材料龙头，国产替代率突破70%</h3><br><p>存款利率迎来新一轮下调，银行板块短期承压负债端改善。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>企业中长期贷款利率创历史新低，制造业资本开支回升</h3><br><p>半导体产业扶持基金落地，大基金二期标的全线拉升。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>自由贸易试验区扩围，自贸港本地股异动</h3><br><p>保利发展土储优势：核心城市优质土储的长期价值释放。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>5年期LPR下调15BP，地产链估值修复行情延续</h3><br><p>知名私募组团调研MR产业链标的，新品备货数据曝光。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>东方电气风电设备订单爆发，前三季度业绩预增超35%</h3><br><p>央行降准降息组合拳落地，A股市场迎来全面估值修复。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>游资顶级席位打板沃森生物9800万，疫苗标的获热炒</h3><br><p>制造业PMI连续6个月位于扩张区间，行业景气度持续回升。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>保险资管举牌绿电运营标的，长期配置价值获机构认可</h3><br><p>海螺水泥成本控制能力：水泥行业龙头的长期盈利韧性。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>汉服产业市场规模上半年突破100亿元，国风服饰成为日常潮流</h3><br><p>天际股份锂电材料业务：传统化工企业的转型成长逻辑。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>中国乒乓球队包揽世乒赛全部金牌，统治力延续数十年</h3><br><p>实控人溢价15%增持碳纤维企业，传递长期发展信心。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>外资机构席位净买入恒瑞医药2.4亿，创新药龙头获外资加仓</h3><br><p>赣锋锂业涨超5.3%，固态电池试点线投产。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>宁德时代客户结构优势：全球主流车企的深度绑定逻辑</h3><br><p>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>巴黎奥运会中国代表团斩获42金，位列金牌榜第二位创造境外参赛最佳</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>全球智能家居市场规模突破1万亿美元，智慧家庭普及</h3><br><p>国内大模型评测标准发布，统一行业能力评估体系。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>思源电气涨超4.5%，电网设备出口数据亮眼</h3><br><p>五粮液批价上涨5%，次高端白酒板块迎来行情。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>机构+北向合力买入北方稀土2.7亿，稀土标的获资金布局</h3><br><p>汽车数据安全管理新规，汽车软件板块集体上涨。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团</h3><br><p>旅游年卡覆盖超200城，一票通玩激活本地休闲消费。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>专精特新企业扶持政策，专精特新标的全线异动</h3><br><p>紫光国微特种芯片高增，单季业绩预告超预期。<br><br> | 来源：<code>www.www.bbca.com.cn
