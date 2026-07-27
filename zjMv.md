@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分35秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国碳捕集利用与封存项目年处理能力突破1500万吨</h3><br><p>大模型在气象领域应用，天气预报准确率提升15%。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>游资知名席位联手买入中远海控7500万，集运标的获追捧</h3><br><p>神州高铁放量上涨3.7%，轨道交通运维业务增长。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>新增开户数环比大增，互联网券商板块全线走强</h3><br><p>南昌推出“红色夜校”文旅项目，夜间红色体验游受热捧。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>浪潮信息放量上涨7.4%，AI服务器出货量超预期</h3><br><p>机构+北向合力买入新希望6700万，养殖标的获资金布局。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>游资知名席位联手买入浙江建投1.6亿，基建标的获资金追捧</h3><br><p>丹麦经济稳健增长，风电产业全球领先。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>中国电竞战队斩获英雄联盟S14全球总决赛冠军</h3><br><p>故宫博物院暑期门票秒空，日均接待游客突破8万人次。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>海康威视海外市场拓展：AI安防产品的全球份额提升</h3><br><p>钙钛矿光伏企业开启新股申购，量产进度领先行业获资金热捧。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升</h3><br><p>亿纬锂能换手率超3%，量能放大下的资金动向解析。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>全球跨境旅游人次上半年突破7亿，旅游业全面复苏</h3><br><p>中国自行车队世锦赛夺得金牌，场地自行车项目实现突破。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>养老金现身创新器械标的，海外FDA获批进度超预期</h3><br><p>恩捷股份隔膜份额提升，单季业绩预告超预期。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>北向资金大额扫货万华化学1.3亿，化工龙头获外资流入</h3><br><p>实控人邀约收购中药创新药企业，溢价35%发起全面要约。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>粤港澳大湾区一体化发展提速，跨境要素流动更加便捷</h3><br><p>全国珍稀濒危植物保护名录更新，超千种植物得到有效保护。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>人民币汇率升值至6.8关口，航空板块汇兑收益大幅增加</h3><br><p>恒力石化炼化一体化布局：民营大炼化龙头的盈利韧性。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>派能科技涨超7.5%，户用储能电池订单饱满</h3><br><p>黎以罗马谈判达成阶段性协议，以军启动南部黎巴嫩撤军。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>北向资金单日买入三安光电9000万，LED龙头获外资持续流入</h3><br><p>北向资金连续增持养老产业标的，银发经济赛道获外资流入。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>实控人兜底式增持AI大模型标的，员工参与规模超预期</h3><br><p>全国绿色电力消费占比达28%，工业绿电使用比例大幅提升。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>东方雨虹企稳反弹4.2%，地产链需求边际改善</h3><br><p>亿纬锂能异动拉升6.3%，大储订单持续超预期。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级</h3><br><p>故宫博物院年接待观众突破2000万人次，文创产品营收超20亿。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>海康威视W底形态确立，底部反转信号明确</h3><br><p>谷爱凌复出参加世锦赛，斩获自由式滑雪U型场地金牌。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>百亿私募组团调研6G通信企业，技术试验进度超市场预期</h3><br><p>央行加大公开市场操作力度，资金面维持平稳宽松。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>国家文化数字化战略落地，文化资源线上共享覆盖全民</h3><br><p>千禾味业放量上涨4.3%，零添加产品份额持续提升。<br><br> | 来源：<code>www.hnltjy.com
