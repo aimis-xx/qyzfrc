@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分56秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内大模型集中落地，AI办公标的迎来估值修复</h3><br><p>万科A异动拉升3.6%，核心城市楼盘去化率改善。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>房地产融资白名单出台，优质房企板块走强</h3><br><p>中际旭创再创阶段新高，趋势加速下的持仓策略。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>天齐锂业锂价反弹，单季业绩预告环比大增</h3><br><p>敦煌莫高窟数字展示中心升级，游客沉浸式体验千年壁画。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>机构席位大额买入澜起科技8500万，内存芯片龙头获布局</h3><br><p>贵州茅台近5年财务复盘：高毛利背后的盈利稳定性逻辑。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>药明康德单日涨超5%，CXO板块迎来情绪拐点</h3><br><p>运达股份风电整机盈利修复：行业底部的经营优化逻辑。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>美的集团创年内新高，海外家电收入增速超20%</h3><br><p>游资顶级席位联手买入天齐锂业3亿，锂矿龙头获资金追捧。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>游资顶级席位打板璞泰来1.7亿，锂电材料标的获热炒。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>AI个性化推荐大模型升级，用户体验提升同时避免信息茧房</h3><br><p>游资知名席位联手买入固德威5000万，储能标的获追捧。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>杭州亚运会场馆全面开放，年接待市民游客超千万人次</h3><br><p>全国夜间文旅消费集聚区破200个，点亮城市夜经济。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓</h3><br><p>企业中长期贷款增速回升，宽信用效果逐步显现。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>复合肥价格上调7%，化肥全产业链盈利优化</h3><br><p>北方稀土异动拉升，稀土永磁行业供需格局优化。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>游资顶级席位打板梅花生物5200万，氨基酸标的获热炒</h3><br><p>海螺水泥水泥价格回升，单季业绩预告超预期。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>国内短视频带火小众景点，超300个县域景点成网红打卡地</h3><br><p>全国急救培训覆盖超亿人次，公共场所AED设备配置率达90%。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>中国网球选手首次夺得大满贯单打冠军，创造历史突破</h3><br><p>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>粤高速A异动拉升2.6%，大湾区车流量高增</h3><br><p>铂价上涨10%，燃料电池催化剂板块迎来涨价催化。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>全国会展经济快速复苏，上半年展览场次同比增长45%</h3><br><p>闽南文化生态保护区建设成效显著，非遗活态传承活力迸发。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>林业碳汇交易政策，林业运营标的全线异动</h3><br><p>上半年全国智能手机出货量同比增长7%，国产品牌占比提升。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%</h3><br><p>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>机构专用席位净买入韦尔股份1.5亿，CIS芯片龙头获长线加仓</h3><br><p>东莞控股放量上涨2.2%，珠三角车流量高增。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>3D生成大模型技术突破，1分钟生成高精度工业模型</h3><br><p>三安光电化合物半导体布局：LED+碳化硅的长期空间。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>超170家机构到访PCB龙头，AI服务器板订单同比翻倍</h3><br><p>北向资金大额扫货新宙邦7000万，电解液龙头获外资流入。<br><br> | 来源：<code>www.trqgzc.com
