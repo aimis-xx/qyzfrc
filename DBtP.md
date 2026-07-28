@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>陕西煤业资源禀赋优势：煤炭龙头的业绩稳定性解析</h3><br><p>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%。<br><br> | 来源：<code>https://mamadepengyou.com.cn
+</code></p><br><br><h3>全球供应链重构加速，东南亚制造业份额持续提升</h3><br><p>保险资管举牌绿电运营标的，长期配置价值获机构认可。<br><br> | 来源：<code>https://mamahema.com.cn
+</code></p><br><br><h3>企业中长期贷款增速回升，宽信用效果逐步显现</h3><br><p>头部券商到访调味品龙头，渠道库存去化周期数据披露。<br><br> | 来源：<code>https://manguan-official-web.com.cn
+</code></p><br><br><h3>露营经济持续升温，全国露营地数量突破4万个</h3><br><p>当升科技涨超5.1%，正极材料海外订单增长。<br><br> | 来源：<code>https://manhuatiantang.com.cn
+</code></p><br><br><h3>休闲食品开启涨价潮，食品加工板块盈利弹性释放</h3><br><p>风电并网消纳政策优化，风电运营板块全线走强。<br><br> | 来源：<code>https://manhuatong.com.cn
+</code></p><br><br><h3>央行表态加大逆周期调节，后续仍有降准降息空间</h3><br><p>武当山暑期游客量突破120万人次，道教文化游持续升温。<br><br> | 来源：<code>https://manhuaxiuxiu.cn
+</code></p><br><br><h3>超210家机构到访AI安防龙头，海外政府订单同比大增</h3><br><p>人民币国际化进程加速，跨境贸易人民币结算占比提升至38%。<br><br> | 来源：<code>https://mantiantang.com.cn
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>全国碳捕集利用与封存项目年处理能力突破1500万吨。<br><br> | 来源：<code>https://maokuai.com.cn
+</code></p><br><br><h3>工业大模型落地万座工厂，生产效率平均提升30%</h3><br><p>万华化学MDI技术优势：化工龙头的全产业链协同价值。<br><br> | 来源：<code>https://maomishequ.cn
+</code></p><br><br><h3>全球5G用户突破30亿，中国市场占比超一半</h3><br><p>三亚亚特兰蒂斯暑期日均客流超3万，水世界项目一票难求。<br><br> | 来源：<code>https://mayaluntan.cn
+</code></p><br><br><h3>AI手语翻译大模型上线，助力千万听障人士沟通无障碍</h3><br><p>北京君正车载存储优势：汽车电子赛道的高景气受益标的。<br><br> | 来源：<code>https://meilidexiaomitao.com.cn
+</code></p><br><br><h3>苏炳添复出百米跑出9秒98，重返世界顶尖选手行列</h3><br><p>全国医保目录新增126种新药，涵盖多款罕见病特效药。<br><br> | 来源：<code>https://meimeidaohang.cn
+</code></p><br><br><h3>赣粤高速涨超2.3%，江西区域车流量稳步提升</h3><br><p>建筑光伏一体化政策，BIPV标的全线拉升。<br><br> | 来源：<code>https://meinu-bei-cao.com.cn
+</code></p><br><br><h3>国产大模型出海加速，东南亚市场份额突破30%</h3><br><p>中国排球队世界联赛夺冠，三大球集体项目重回巅峰。<br><br> | 来源：<code>https://meinu-bei-gan.com.cn
+</code></p><br><br><h3>华为星闪技术大规模商用，相关产业链标的领涨</h3><br><p>海螺水泥涨超3.7%，基建投资增速回暖带动需求。<br><br> | 来源：<code>https://meinu-bei-ri.com.cn
+</code></p><br><br><h3>实控人兜底式增持固态电池企业，员工响应参与比例超90%</h3><br><p>机构席位大额买入拓普集团9200万，零部件龙头获长线布局。<br><br> | 来源：<code>https://meinu-beicao.com.cn
+</code></p><br><br><h3>国内AI算力网络国家枢纽节点全部建成，实现算力全国调度</h3><br><p>全国武夷山国家公园生态监测系统建成，生物多样性数据实时采集。<br><br> | 来源：<code>https://meinu-gao-ji.com.cn
+</code></p><br><br><h3>飞天茅台批价突破2900元，白酒龙头盈利超预期</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>https://meinu-huangsexiaoshuo.com
+</code></p><br><br><h3>国家发改委出台促消费20条新政，重点支持汽车家电消费</h3><br><p>全国城市轨道交通全部实现电气化，绿色出行比例超70%。<br><br> | 来源：<code>https://meinu-wangzhan-se.com.cn
+</code></p><br><br><h3>美联储连续降息后美元走弱，原油价格迎来趋势性反弹</h3><br><p>美联储连续降息后美元走弱，原油价格迎来趋势性反弹。<br><br> | 来源：<code>https://meinubeicao.com.cn
