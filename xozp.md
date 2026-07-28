@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分44秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>外资资管集中调研跨境电商龙头，出口增速数据首次公开</h3><br><p>中国男子射箭队世锦赛团体夺冠，打破韩国长期垄断。<br><br> | 来源：<code>https://new-91cc.com.cn
+</code></p><br><br><h3>机器人赛道持续升温：核心零部件、整机制造的投资机会</h3><br><p>小鹏汽车智能驾驶优势：新势力车企的技术差异化路径。<br><br> | 来源：<code>https://new-91cn.com.cn
+</code></p><br><br><h3>印度经济增速达7.2%，成为全球增长最快主要经济体</h3><br><p>天齐锂业锂矿资源储备：全球锂矿龙头的资源禀赋优势。<br><br> | 来源：<code>https://new-91com.com.cn
+</code></p><br><br><h3>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升</h3><br><p>武夷山暑期游客量突破180万人次，茶旅融合发展成效显著。<br><br> | 来源：<code>https://new-91dongman.com.cn
+</code></p><br><br><h3>全球生物医药市场规模突破1.8万亿美元，创新药研发加速</h3><br><p>蚝油产品价格上调3%，调味品全产业链盈利优化。<br><br> | 来源：<code>https://new-91mianfei.com.cn
+</code></p><br><br><h3>机构专用席位大额买入招商银行2.5亿，银行龙头获机构增持</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>https://new-91n.com.cn
+</code></p><br><br><h3>氢能产业中长期规划，氢能源全板块集体上涨</h3><br><p>AI大模型企业启动申购，ToB付费转化率超行业平均水平。<br><br> | 来源：<code>https://new-91ncom.com.cn
+</code></p><br><br><h3>洛阳龙门石窟暑期游客量突破200万人次，石窟艺术游受追捧</h3><br><p>超220家机构到访AI教育龙头，付费用户规模环比大增。<br><br> | 来源：<code>https://new-91tv.com.cn
+</code></p><br><br><h3>中际旭创800G光模块放量，前三季度业绩预增130%</h3><br><p>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善。<br><br> | 来源：<code>https://new-91yingshi.com.cn
+</code></p><br><br><h3>汉服产业市场规模上半年突破100亿元，国风服饰成为日常潮流</h3><br><p>游资知名席位联手买入中际旭创5亿，光模块龙头获热炒。<br><br> | 来源：<code>https://new-aifengyue.com.cn
+</code></p><br><br><h3>江淮汽车与华为合作：传统车企与科技巨头的协同价值</h3><br><p>首套房贷款利率突破2.9%，刚需购房成本创历史新低。<br><br> | 来源：<code>https://new-aiye.net.cn
+</code></p><br><br><h3>QFII集中调研宠物食品龙头，海外市场渗透率数据公开</h3><br><p>山东"三孔"景区暑期接待游客超200万人次，传统文化游升温。<br><br> | 来源：<code>https://new-aqd.org.cn
+</code></p><br><br><h3>桂林山水暑期游客量突破400万人次，经典景区持续焕发活力</h3><br><p>全国乒乓球业余赛参赛人数破百万，国球群众基础深厚。<br><br> | 来源：<code>https://new-aqdlt.org.cn
+</code></p><br><br><h3>西安马拉松开跑，穿越古城墙赛道吸引超3万跑者参与</h3><br><p>中国田径队世锦赛斩获3金，男子跳远打破尘封20年纪录。<br><br> | 来源：<code>https://new-baicai-web.com
+</code></p><br><br><h3>文旅部推出100条乡村精品线路，带动县域文旅消费</h3><br><p>伊利股份乳制品量价齐升，前三季度业绩预增超20%。<br><br> | 来源：<code>https://new-baihe.com.cn
+</code></p><br><br><h3>全国"无废城市"试点扩围至100个，固废资源化利用提速</h3><br><p>全球汽车市场新能源渗透率突破30%，中国品牌引领潮流。<br><br> | 来源：<code>https://new-baijiang.net.cn
+</code></p><br><br><h3>机构席位大额买入四川路桥1.3亿，区域基建龙头获长线布局</h3><br><p>贵州茅台站稳年线，趋势反转信号逐步确认。<br><br> | 来源：<code>https://new-baleshipin.cn
+</code></p><br><br><h3>人民币对美元汇率升值至6.7关口，外汇储备规模稳定在3.3万亿美元</h3><br><p>泸州老窖品牌升级：国窖1573的高端化成长路径解析。<br><br> | 来源：<code>https://new-biwei-sports.com.cn
+</code></p><br><br><h3>中国男子皮划艇队世锦赛夺冠，静水项目实现金牌零突破</h3><br><p>机构专用席位净买入韦尔股份1.5亿，CIS芯片龙头获长线加仓。<br><br> | 来源：<code>https://new-bowan-sports.com.cn
+</code></p><br><br><h3>深股通席位单日买入圣邦股份7500万，模拟芯片标的增持</h3><br><p>一带一路十周年峰会召开，中字头基建标的拉升。<br><br> | 来源：<code>https://new-caike-official.com
