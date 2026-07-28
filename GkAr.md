@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分42秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国地下水超采综合治理成效显著，水位回升超2米</h3><br><p>中俄双边贸易额上半年突破1200亿美元，创历史新高。<br><br> | 来源：<code>https://chengrencn.cn
+</code></p><br><br><h3>中国与中东欧国家合作升级，互联互通项目持续落地</h3><br><p>全国地热能源开发利用规模突破5000万吨标准煤。<br><br> | 来源：<code>https://chengrendaohang.cn
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>QFII集中调研医药流通龙头，院外市场拓展节奏披露。<br><br> | 来源：<code>https://chengrendongman.cn
+</code></p><br><br><h3>兆易创新涨超4.4%，存储芯片价格触底反弹</h3><br><p>医美行业合规化政策，头部医美标的拉升。<br><br> | 来源：<code>https://chengrendouman-zh.com.cn
+</code></p><br><br><h3>财政部出台减税降费新政，全年为企业减负超1.2万亿元</h3><br><p>海康威视涨超4.7%，AI安防业务收入增速回升。<br><br> | 来源：<code>https://chengrendouyin.com.cn
+</code></p><br><br><h3>极端高温天气来袭，电力运营板块集体拉升</h3><br><p>互联网平台经济政策回暖，中概股联动标的上涨。<br><br> | 来源：<code>https://chengrenduanshipin.cn
+</code></p><br><br><h3>新能源汽车销量上半年突破550万辆，市场渗透率达48%</h3><br><p>中国滑板队奥运会夺得银牌，新兴项目快速崛起。<br><br> | 来源：<code>https://chengrenhuangyou.com.cn
+</code></p><br><br><h3>养老金新进虚拟电厂标的，首次布局电力信息化赛道</h3><br><p>全国学生体质健康达标率提升至92%，青少年身体素质增强。<br><br> | 来源：<code>https://chengrenjiaoyu.com.cn
+</code></p><br><br><h3>外资准入政策放宽，外资偏好标的全线拉升</h3><br><p>北向资金大额扫货天合光能7100万，光伏龙头获外资流入。<br><br> | 来源：<code>https://chengrenjingpin.com.cn
+</code></p><br><br><h3>比亚迪全产业链布局：从电池到整车的垂直整合优势</h3><br><p>中新（新加坡）自贸协定升级，服务贸易开放度大幅提升。<br><br> | 来源：<code>https://chengrenjiujiu.com.cn
+</code></p><br><br><h3>大模型在气象领域应用，天气预报准确率提升15%</h3><br><p>全国黄土高原水土流失治理率达70%，黄河泥沙含量锐减。<br><br> | 来源：<code>https://chengrenmanhuawang.com.cn
+</code></p><br><br><h3>上半年全国集成电路产量同比增长18%，产业链自主可控推进</h3><br><p>全国PPI同比由负转正，工业企业盈利预期持续改善。<br><br> | 来源：<code>https://chengrenmianfeiwangzhan.com.cn
+</code></p><br><br><h3>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放</h3><br><p>中国自行车队世锦赛夺得金牌，场地自行车项目实现突破。<br><br> | 来源：<code>https://chengrenshipinzaixianguankan.com.cn
+</code></p><br><br><h3>飞天茅台批价突破2900元，白酒龙头盈利超预期</h3><br><p>中国霹雳舞队奥运会夺得金牌，新兴街舞项目站上世界之巅。<br><br> | 来源：<code>https://chengrenwang.com.cn
+</code></p><br><br><h3>车联网安全标准出台，车联网板块集体上涨</h3><br><p>宠物友好景区数量破千，携宠出游成为家庭消费新选择。<br><br> | 来源：<code>https://chengrenwangwang.com.cn
+</code></p><br><br><h3>全国远程医疗覆盖所有县域，优质医疗资源下沉至基层</h3><br><p>隆基绿能单季盈利超百亿，光伏龙头业绩超预期。<br><br> | 来源：<code>https://chengrenyingyuanwang.com.cn
+</code></p><br><br><h3>全球储能市场规模突破500GWh，新型电力系统建设提速</h3><br><p>腾讯云大模型生态开放，接入超十万第三方应用。<br><br> | 来源：<code>https://chengrenzaixian-zh.com.cn
+</code></p><br><br><h3>海尔智家稳步上行，白电行业格局持续优化</h3><br><p>瑞典经济走出负增长，科技产业拉动复苏。<br><br> | 来源：<code>https://chengrenzaixian.com.cn
+</code></p><br><br><h3>天赐材料电解液成本控制：行业龙头的规模优势解析</h3><br><p>江淮汽车异动拉升4.7%，与华为合作车型落地加速。<br><br> | 来源：<code>https://chengrenzhibo-zh.com.cn
+</code></p><br><br><h3>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨</h3><br><p>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善。<br><br> | 来源：<code>https://chengrenzhibo.cn
