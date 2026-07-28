@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置</h3><br><p>知名私募调研量子通信标的，干线网络建设落地节奏披露。<br><br> | 来源：<code>https://chuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>百亿私募组团调研碳化硅企业，车规级器件量产线投产</h3><br><p>深股通席位单日买入海天味业6100万，调味品标的增持。<br><br> | 来源：<code>https://chuniaoapp.cn
+</code></p><br><br><h3>黄金价格创历史新高，黄金珠宝板块盈利弹性释放</h3><br><p>北京君正涨超5.3%，车载存储芯片需求爆发。<br><br> | 来源：<code>https://chutianbenzi.com.cn
+</code></p><br><br><h3>2026年AI产业赋能经济增长超万亿，成为数字经济核心引擎</h3><br><p>全国小微企业贷款余额突破60万亿元，融资成本进一步下降。<br><br> | 来源：<code>https://chuyindao.com.cn
+</code></p><br><br><h3>中部地区崛起新政策落地，打造先进制造业增长极</h3><br><p>全国校园足球特色校破2万，青少年足球人才储备加厚。<br><br> | 来源：<code>https://cili-duo.com.cn
+</code></p><br><br><h3>云南泼水节暑期活动重启，单日参与游客突破50万人次</h3><br><p>中国男子橄榄球队亚运会闯入八强，项目普及度持续提升。<br><br> | 来源：<code>https://cili-jinniu.com.cn
+</code></p><br><br><h3>暑期档电影票房突破200亿元，国产主旋律影片领跑市场</h3><br><p>机构专用席位净买入容百科技8800万，高镍正极龙头加仓。<br><br> | 来源：<code>https://cili-mao.com.cn
+</code></p><br><br><h3>宁德时代动力电池技术：麒麟电池+M3P的技术领先性</h3><br><p>宁德时代商业模式拆解：动力电池龙头的护城河有多深。<br><br> | 来源：<code>https://cili-sousuo.com.cn
+</code></p><br><br><h3>美的集团海外收入高增，前三季度业绩预增超25%</h3><br><p>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓。<br><br> | 来源：<code>https://cili-tiantang.com.cn
+</code></p><br><br><h3>南昌推出“红色夜校”文旅项目，夜间红色体验游受热捧</h3><br><p>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先。<br><br> | 来源：<code>https://cililian.com.cn
+</code></p><br><br><h3>国际铜价持续上行，铜业板块标的全线异动</h3><br><p>中国男子射击队世锦赛斩获6金，奥运席位全部拿满。<br><br> | 来源：<code>https://cilisou.com.cn
+</code></p><br><br><h3>新疆暑期游客量突破5000万人次，西部文旅市场爆发</h3><br><p>英国经济止跌回升，二季度GDP同比增长0.6%。<br><br> | 来源：<code>https://ciliwangzhan.com.cn
+</code></p><br><br><h3>中国中车异动拉升，一带一路订单持续释放</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>https://clshequ.cn
+</code></p><br><br><h3>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录</h3><br><p>养老金新进光伏逆变器标的，海外市占率提升获长期配置。<br><br> | 来源：<code>https://clsq.cn
+</code></p><br><br><h3>10年期国债收益率下行至2.5%以下，权益资产吸引力提升</h3><br><p>中国建筑基建龙头优势：国内建筑行业的订单与规模优势。<br><br> | 来源：<code>https://club91.cn
+</code></p><br><br><h3>龙江交通放量上涨1.8%，东北区域车流量边际改善</h3><br><p>小鹏汽车单季交付破3万，业绩亏损大幅收窄。<br><br> | 来源：<code>https://cn-188-sports.com.cn
+</code></p><br><br><h3>中国交建港口航道优势：全球港口建设龙头的核心壁垒</h3><br><p>全国东北虎种群数量突破70只，野生虎栖息地持续扩大。<br><br> | 来源：<code>https://cn-2026worldcup-buy.com
+</code></p><br><br><h3>长电科技放量上涨4.8%，先进封装订单饱满</h3><br><p>全国研究生考试报名人数首次回落，就业导向成为报考主流。<br><br> | 来源：<code>https://cn-2026worldcup-official.com
+</code></p><br><br><h3>生猪价格突破18元/公斤，养殖板块盈利拐点显现</h3><br><p>功率半导体价格上调6%，IGBT板块迎来涨价催化。<br><br> | 来源：<code>https://cn-9170-jinsha.com
+</code></p><br><br><h3>派能科技户用储能爆发，单季业绩预告超预期</h3><br><p>央行下调再贷款利率，精准支持科技创新领域。<br><br> | 来源：<code>https://cn-ab-tiyu.com.cn
